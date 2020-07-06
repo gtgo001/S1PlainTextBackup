@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-31 14:00** 
+> ## **本文件最后更新于2020-07-06 12:00** 
 
 
 
@@ -2886,7 +2886,7 @@ ps2：艹旅馆的若女将戳中我的壶了  加上短裤运动少女 知优
 
 
 -77d1436b3cc65902.jpg
-(66.46 KB, 下载次数: 1)
+(66.46 KB, 下载次数: 3)
 
 
 
@@ -3370,7 +3370,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_BYm82" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_AVggV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5156,7 +5156,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_B7GUM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_MxFP1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -9639,4 +9639,3065 @@ test
 
 
 
-                                
+
+
+-----
+
+####  xingenge  
+##### 2012#       发表于 2020-6-4 14:40
+
+
+
+<img src="https://files.catbox.moe/r0u7n8.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2013#       发表于 2020-6-5 07:13
+
+
+
+
+还是竖琴……
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gfgi5wuj2oj20qx0oejt9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2014#       发表于 2020-6-5 10:21
+
+
+
+
+日向这自闭没得好了。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 2015#       发表于 2020-6-5 18:14
+
+
+
+
+看杂志 放送未定的列表中已经没Q娃了
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2016#       发表于 2020-6-5 21:08
+
+
+
+
+今年的OST1已经有源了，质量不错
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 2017#       发表于 2020-6-7 07:38
+
+
+
+ 本帖最后由 shimmy1996 于 2020-6-7 07:41 编辑 
+
+没有人觉得mega病原的开场和隔壁战姬的拔剑很像吗<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202006/07/074119ffybxak4pfu4tn46.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2020-06-06_18-33-53.png</strong> (141.15 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 07:41 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/074118y32dt23sf9stvzzd.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2020-06-06_18-37-21.png</strong> (257.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 07:41 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2018#       发表于 2020-6-7 08:04
+
+
+
+
+下周日仍是重播
+<img src="https://p.sda1.dev/0/f31597bcbc8917b5a8f35843b5554308/6YGJem7tWI.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2019#       发表于 2020-6-7 11:34
+
+
+
+
+疼失我Q日向。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  lydia5989  
+##### 2020#       发表于 2020-6-7 21:16
+
+
+
+
+第七个没有q娃看的一周<img src="https://static.saraba1st.com/image/smiley/goose2017/063.png" referrerpolicy="no-referrer"> 可怜的黄毛创造了q娃自闭最长时间的记录，预计未来无人能破
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 2021#       发表于 2020-6-9 16:35
+
+
+
+
+据说还要再放送……
+
+
+无FUCK可说！
+
+
+
+
+
+
+
+-----
+
+####  吹雪桑大胜利  
+##### 2022#       发表于 2020-6-10 00:36
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/10/003435rhdnd0xo40ozam4p.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200610003416.jpg</strong> (220.16 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-10 00:34 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/10/003500no5w9elvl6oof6z8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200610003412.jpg</strong> (235.78 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-10 00:35 上传
+
+
+
+
+
+
+真不知道什么时候能看到
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2023#       发表于 2020-6-10 00:39
+
+
+
+
+别吹了，越吹越想看<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2024#       发表于 2020-6-10 03:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47742573&amp;ptid=1860852" target="_blank">吹雪桑大胜利 发表于 2020-6-10 00:36</a>
+真不知道什么时候能看到</blockquote>
+一说到 迷你裙，秀腿 ，我就想到大白腿春春的反身下踢
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 2025#       发表于 2020-6-10 11:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有好哥哥告诉我啥时候才有新的看啊
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 2026#       发表于 2020-6-10 11:37
+
+
+
+
+别发了啊，心里猫抓一样的，今年的二段变身还这么好看<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 2027#       发表于 2020-6-10 13:36
+
+
+
+ 本帖最后由 Tomorrow_D 于 2020-6-10 13:42 编辑 
+
+啊不好意思回错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+数码冒号是28号播出新一话，之前东A下面的几部作品都是同一天停的，如果也是同一天复播的话那么Q娃也是6月28号复播。
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2028#       发表于 2020-6-10 15:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好心疼，什么气候才能看到呢。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 2029#       发表于 2020-6-10 15:48
+
+
+
+ 本帖最后由 nerugigannte 于 2020-6-10 15:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">迷你短裙大光腿！！！
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">这届女人还挺喜欢用踢技的，看样子短裙设定是为了更好得展现她们的魅力，大白腿净化病根子想想心又痒了
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">求快点开播把
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 2030#       发表于 2020-6-10 15:55
+
+
+
+
+今年q娃是不是就40集了
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 2031#       发表于 2020-6-11 16:32
+
+
+
+
+停播期间无聊，去光之美少女吧逛了一下，就感觉氛围很怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">帖子要不了几楼就能扯到bgbl战起来，还有一个人好像喜欢追着魔法使黑。
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2032#       发表于 2020-6-13 15:30
+
+
+
+
+对魔忍？
+<img src="http://wx1.sinaimg.cn/large/b5bc9fb7ly1gfpvpumzp5j20v915ytj9.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/b5bc9fb7ly1gfpvpxjvntj20v910e7f5.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2033#       发表于 2020-6-14 09:34
+
+
+
+
+おさらいセレクション是什么东西？
+<img src="https://p.sda1.dev/0/cf86f1da37f2fddb84c42abbd0c71389/aIxumPX46L.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2034#       发表于 2020-6-14 09:45
+
+
+
+
+开播前要来一集总集吗？
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2035#       发表于 2020-6-14 12:41
+
+
+
+
+28日复播！！！！！！！！！！！！！！！
+<img src="http://wx2.sinaimg.cn/mw690/e7cbae74gy1gfr297mhmfj204k07vglj.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2036#       发表于 2020-6-14 13:09
+
+
+
+
+谢天谢地
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2037#       发表于 2020-6-14 13:33
+
+
+
+
+貌似实际内容就是第12集的重播
+<img src="https://p.sda1.dev/0/f949809c4cd43e1f684904075dc922d7/a0HYpkiyHL.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2038#       发表于 2020-6-14 16:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47800160&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-6-14 13:33</a>
+
+貌似实际内容就是第12集的重播</blockquote>
+对啊
+
+下周是12集重播，下下周28日不就是13集了么
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2039#       发表于 2020-6-14 17:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47802016&amp;ptid=1860852" target="_blank">HGCG 发表于 2020-6-14 16:56</a>
+
+对啊
+
+下周是12集重播，下下周28日不就是13集了么</blockquote>
+祝你预言成功<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  吹雪桑大胜利  
+##### 2040#       发表于 2020-6-17 13:24
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/17/132401citcideldpz3ljkl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200617132339.jpg</strong> (31.62 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-17 13:24 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/17/132408xnb1fndubt35gdfz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200617132344.jpg</strong> (24.27 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-17 13:24 上传
+
+
+
+
+
+
+第四人
+
+
+
+
+
+
+
+-----
+
+####  Garterbelt  
+##### 2041#       发表于 2020-6-17 13:45
+
+
+
+
+看起来比较……大龄？
+
+
+
+
+
+
+
+-----
+
+####  twit  
+##### 2042#       发表于 2020-6-17 14:02
+
+
+
+
+妈q实锤了
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2043#       发表于 2020-6-17 14:47
+
+
+
+
+那么关键问题 q娃地球什么时候上线呢
+按道理这个时间点已经登场准备变身了
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2044#       发表于 2020-6-17 14:51
+
+
+
+
+这不是同辈的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2045#       发表于 2020-6-17 15:28
+
+
+
+
+像大了十岁的小光<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  菊妖不是怪  
+##### 2046#       发表于 2020-6-17 15:33
+
+
+
+
+才发现qq音乐上了原声碟，复播前可以稍微缓缓劲<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+分享专辑 寺田志保《『ヒーリングっど♥プリキュア』 オリジナル・サウンドトラック (TV动画《Healin' Good ♡ 光之美少女》原声带)》 [https://c.y.qq.com/base/fcgi-bin/u?__=YnfWwWl](https://c.y.qq.com/base/fcgi-bin/u?__=YnfWwWl) @QQ音乐
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 2047#       发表于 2020-6-17 15:39
+
+
+
+
+妈妈！！！！！！
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2048#       发表于 2020-6-17 15:48
+
+
+
+
+大十岁的小光+1<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+外表看感觉都能当粉蓝黄的妈了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 2049#       发表于 2020-6-17 15:50
+
+
+
+
+我记得上次吐槽过了把
+
+
+我觉得应该是个强力外援，无情打手，一开始游离在小团队之外，慢慢被友情感化的发展，画风和目前三人组实在差太多了。。。
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2050#       发表于 2020-6-17 16:08
+
+
+
+
+光之bba？？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2051#       发表于 2020-6-17 16:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47839239&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-6-17 15:50</a>
+
+我记得上次吐槽过了把
+
+
+我觉得应该是个强力外援，无情打手，一开始游离在小团队之外，慢慢被友情感化的发展 ...</blockquote>
+那不就去年的蓝猫吗，平时日常不见她，打架才出来收人头
+
+个人猜测是养狗工具人，以保姆身份进入和佳家，顺便解决新角色住所问题
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 2052#       发表于 2020-6-17 16:21
+
+
+
+
+又是一个bba
+
+
+
+
+
+
+
+-----
+
+####  wind4rap  
+##### 2053#       发表于 2020-6-17 16:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47839519&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-6-17 16:15</a>
+
+那不就去年的蓝猫吗，平时日常不见她，打架才出来收人头
+
+个人猜测是养狗工具人，以保姆身份进入和佳家， ...</blockquote>
+我记得狗是以要找主人为借口才暂时收养的，这不正好当作找到了主人送出去吗。看起来也是成年人了住所问题自己能解决吧……
+
+
+
+
+
+
+
+-----
+
+####  菊妖不是怪  
+##### 2054#       发表于 2020-6-17 16:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">盲猜伪装身份是日向家宠物医院新来的医师/护士
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  吹雪桑大胜利  
+##### 2055#       发表于 2020-6-17 16:45
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/17/164435dw7fdumd1smytfif.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200617164339.jpg</strong> (131.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-17 16:44 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/17/164446rg8p8lryz184y8c8.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200617164344.png</strong> (319.58 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-17 16:44 上传
+
+
+
+
+
+吊，就继续吊胃口
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2056#       发表于 2020-6-17 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47839905&amp;ptid=1860852" target="_blank">吹雪桑大胜利 发表于 2020-6-17 16:45</a>
+吊，就继续吊胃口</blockquote>
+最下方三个是在参加BBA化妆大赛吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2057#       发表于 2020-6-17 18:41
+
+
+
+
+自从楼上说了阿光之后我就回不去了，越看越像<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2058#       发表于 2020-6-17 20:01
+
+
+
+<img src="http://wx1.sinaimg.cn/large/69559a0agy1gfvbwsazp6j20go0goah9.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/69559a0agy1gfvbwsu1c9j20go0gon1c.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/69559a0agy1gfvbws5rsoj20go0goqc0.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2059#       发表于 2020-6-17 22:15
+
+
+
+ 本帖最后由 leleq 于 2020-6-17 22:18 编辑 
+
+蓝色会长bba 红色小学生bba：哈哈哈哈哈哈哈终于有这么一天了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+紫色银兽bba：我是不是可以摆脱这个称号了？
+
+
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2060#       发表于 2020-6-17 22:56
+
+
+
+
+去年这个时候蓝猫已经登场了
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2061#       发表于 2020-6-18 07:01
+
+
+
+
+声优是谁确定了吗？
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 2062#       发表于 2020-6-18 08:38
+
+
+
+
+这一季看来是要在抓心的道路上一条道走到黑了……把抓心马琳和いつき颜色对调就是这次的配置了。
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2063#       发表于 2020-6-18 20:23
+
+
+
+<img src="http://wx4.sinaimg.cn/large/007nNQNIly1gfwmoi56j7j30hs0m2e81.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2064#       发表于 2020-6-18 20:27
+
+
+
+
+停播停得现在连玩具都超前来了。
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 2065#       发表于 2020-6-19 07:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47854857&amp;ptid=1860852" target="_blank">HGCG2 发表于 2020-6-18 20:23</a></blockquote>
+又下角那个化妆品，这不是给小友的吧？
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2066#       发表于 2020-6-19 21:11
+
+
+
+<img src="http://wx3.sinaimg.cn/large/6765fd79gy1gfxu7pt7zmj20u0140n9v.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2067#       发表于 2020-6-19 21:24
+
+
+
+
+q娃地球cv果然是三森
+
+
+
+
+
+
+
+-----
+
+####  吹雪桑大胜利  
+##### 2068#       发表于 2020-6-19 21:36
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/213604knn4onzvbus098n4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200619213414.jpg</strong> (204.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 21:36 上传
+
+
+
+
+
+
+恭喜森森森
+
+
+
+
+
+
+
+-----
+
+####  吹雪桑大胜利  
+##### 2069#       发表于 2020-6-19 21:37
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/213644v6tjn6mnmutntr9t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200619213427.jpg</strong> (116.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 21:36 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/213653demhb3o4ootmckxk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200619213432.jpg</strong> (161.98 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 21:36 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/213707gt9zgg96xrwjxglt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200619213437.jpg</strong> (157.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 21:37 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/213722tu1woty9wf1dw9yy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200619213440.jpg</strong> (155.93 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 21:37 上传
+
+
+
+
+
+
+转图
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2070#       发表于 2020-6-19 21:47
+
+
+
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gfxxdhtjaij21fq0u01kx.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/mw690/9657fdc2gy1ga4nrua0bzj20730art9h.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wind4rap  
+##### 2071#       发表于 2020-6-19 22:14
+
+
+
+
+人间体看起来娃都上小学了
+
+
+
+
+
+
+
+-----
+
+####  白水潭的饿鬼  
+##### 2072#       发表于 2020-6-19 22:18
+
+
+
+
+一直以来有个疑问，月光姐算紫q还是银q
+
+—— 来自 HMD Global Nokia 7 plus, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 2073#       发表于 2020-6-20 00:02
+
+
+
+
+earth好看是挺好看的，但感觉怪怪的。太……高贵了？又或者说恬淡？
+反正感觉不到小女孩的青春活力，这一点让她看上去年龄特别大。去年selene也是不食人间烟火的大小姐性格，但感觉差非常大
+当然要讲也不是不能讲，比如几百年前作为英雄拯救世界的少女，再次作为cure earth归来面对的最大问题竟是与社会的脱节。
+过往的所有社会关系都不复存在，自己想守护的对象也全部离世，时移世易，唯一的老朋友竟然是过去互为仇敌的大boss。只有在净化怪物的时候才能自己活着的感觉。然后在迷茫的时候被和佳她们一点点引导，融入这个社会。(然后打大块头的时候掏了把刀出来<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+不过也有可能就是朝不谙世事这方面写了
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2074#       发表于 2020-6-20 10:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47870102&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-6-20 00:02</a>
+
+earth好看是挺好看的，但感觉怪怪的。太……高贵了？又或者说恬淡？
+
+反正感觉不到小女孩的青春活力，这一点 ...</blockquote>
+其实看眼睛就能知道问题，一般是通过把眼睛画大画圆来表现纸片人角色的年轻，earth是那种典型的成年人的画法
+
+
+
+
+
+
+
+-----
+
+####  damian-wade  
+##### 2075#       发表于 2020-6-20 11:32
+
+
+
+
+这个人设三森配，我已经可以想象出声音了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PRDY  
+##### 2076#       发表于 2020-6-20 12:28
+
+
+
+
+露大腿还带腿环，有点涩啊
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2077#       发表于 2020-6-20 13:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47874543&amp;ptid=1860852" target="_blank">PRDY 发表于 2020-6-20 12:28</a>
+
+露大腿还带腿环，有点涩啊</blockquote>
+成年人就要发挥成年的优势嘛<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2078#       发表于 2020-6-20 15:21
+
+
+
+
+话说这个“成年人”要住哪呢 之前一般住粉主家 这么个大姐要是住在香香家 香香她妈能安心么<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 2079#       发表于 2020-6-20 15:25
+
+
+
+
+不行，胸不够大，不够涩
+
+不说水果组，就连花花都比不过<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2080#       发表于 2020-6-20 17:13
+
+
+
+
+ふうりん あすみ
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gfyvcreqa0j20m80kehdt.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 2081#       发表于 2020-6-20 19:40
+
+
+
+
+看回帖才发现有腿环，也太涩了吧
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 2082#       发表于 2020-6-20 19:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47868852&amp;ptid=1860852" target="_blank">白水潭的饿鬼 发表于 2020-6-19 22:18</a>
+
+一直以来有个疑问，月光姐算紫q还是银q
+
+
+—— 来自 HMD Global Nokia 7 plus, Android 9上的 S1Next-鹅版 v ...</blockquote>
+紫的。
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 2083#       发表于 2020-6-20 20:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877670&amp;ptid=1860852" target="_blank">HGCG2 发表于 2020-6-20 17:13</a>
+
+ふうりん あすみ</blockquote>
+ふうりん：風鈴、楓林。按照这次每人的姓氏会指向对应的元素，估计这个紫主人间体姓风铃概率不小。
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 2084#       发表于 2020-6-20 20:02
+
+
+
+
+对幼女的影响不可估量！
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妈妈，电视里那个大姐姐的腿环好漂亮，我也想要！
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 2085#       发表于 2020-6-20 20:03
+
+
+
+
+还有，为什么换装之后的和香有点像大凶颜美幸？
+
+
+
+
+
+
+
+-----
+
+####  李霞  
+##### 2086#       发表于 2020-6-20 21:20
+
+
+
+<img src="https://s1.ax1x.com/2020/06/20/NlXqne.jpg" referrerpolicy="no-referrer">
+
+
+三森在年初的节目上，还在说年年去试音，怕是选不上了。
+
+
+现在回想起来，估计节目录制的时候应该已经知道被选上了...
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2087#       发表于 2020-6-20 22:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在还有几个在路上没当上Q娃的。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2088#       发表于 2020-6-21 05:55
+
+
+
+
+下周放第13集！
+<img src="https://p.sda1.dev/0/e75a0650cba26bb1ba88b93239b841c0/UBmpWLLyuu.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 2089#       发表于 2020-6-21 09:00
+
+
+
+ 本帖最后由 xingenge 于 2020-6-21 09:10 编辑 
+
+官微、官网也宣了→[https://weibo.com/7340370095/J7C ... t#_rnd1592701832123](https://weibo.com/7340370095/J7Cw5yzGB?type=comment#_rnd1592701832123)
+
+
+新型コロナウイルス感染症に対する安全対策への配慮のため、
+
+放送を延期しておりました第１３話以降につきまして、
+
+6月28日（日）より放送再開が決定いたしました。
+
+
+キャスト・スタッフともに安全に考慮しながら、
+
+今後も心を一つに、皆さまに【癒やしのプリキュア】で
+
+元気をお届けして参りたいと思いますので、
+
+引き続き、どうぞよろしくお願い申し上げます。
+
+
+そして、３人で協力して放つ新しい技、
+
+「プリキュア・ヒーリングオアシス！」でビョーゲンズを浄化出来るようになった
+
+キュアグレース、キュアフォンテーヌ、キュアスパークルたちの
+
+さらなる活躍をお楽しみに！
+
+
+また、ラビリン、ペギタン、ニャトランたちも
+
+「どようびも！ヒーリングアニマルTV」で活躍中！
+
+公式Youtubeチャンネルも是非ご覧ください！
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2090#       发表于 2020-6-21 11:43
+
+
+
+
+ふうりん　風林？
+片假名 アスミ
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2091#       发表于 2020-6-21 15:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">现在这情况，复播后该不会一、两集就直接把妈妈Q娃给放出来了吧。
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2092#       发表于 2020-6-21 20:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47890615&amp;ptid=1860852" target="_blank">三合一出现 发表于 2020-6-21 15:52</a>
+
+现在这情况，复播后该不会一、两集就直接把妈妈Q娃给放出来了吧。</blockquote>
+这几乎是肯定的吧
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 2093#       发表于 2020-6-21 20:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47868852&amp;ptid=1860852" target="_blank">白水潭的饿鬼 发表于 2020-6-19 22:18</a>
+
+一直以来有个疑问，月光姐算紫q还是银q
+
+
+—— 来自 HMD Global Nokia 7 plus, Android 9上的 S1Next-鹅版 v ...</blockquote>
+颜色定位以变身道具为准，多形态的按第一形态为准
+
+
+
+
+
+
+
+-----
+
+####  catenarygong  
+##### 2094#       发表于 2020-6-21 22:02
+
+
+
+
+三森這個角色好像luminous啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  卡罗斯  
+##### 2095#       发表于 2020-6-21 23:59
+
+
+
+
+已经确定是三森了？
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 2096#       发表于 2020-6-22 00:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">终于有Q娃看了。
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2097#       发表于 2020-6-22 06:59
+
+
+
+ 本帖最后由 HGCG2 于 2020-6-22 07:13 编辑 
+
+官宣了 
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gg0lnv9q9yj20dc0d740s.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gg0lnvhwnjj20dc0d7mzm.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gg0ltiggv2j20dc0d7jwz.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2098#       发表于 2020-6-22 07:35
+
+
+
+
+ED2情报
+<img src="https://p.sda1.dev/0/86fa3e012e89bdb678b319cc5572b123/4AJKCANIjT.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 2099#       发表于 2020-6-22 08:00
+
+
+
+
+复播了，人生有救了！
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 2100#       发表于 2020-6-22 10:38
+
+
+
+
+这人间体感觉娃都上小学了
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2101#       发表于 2020-6-22 11:10
+
+
+
+
+金发熟女真好，戳中xp<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lydia5989  
+##### 2102#       发表于 2020-6-22 11:24
+
+
+
+
+这周终于有q娃看了，黄毛自闭结束了！
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2103#       发表于 2020-6-22 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898315&amp;ptid=1860852" target="_blank">HGCG2 发表于 2020-06-22 06:59:36</a></blockquote>这几张官图画的人很好看。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 2104#       发表于 2020-6-22 12:50
+
+
+
+
+外国人显老（自我催眠
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 2105#       发表于 2020-6-22 14:25
+
+
+
+
+这真不是小光成长后的样子？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2106#       发表于 2020-6-22 20:18
+
+
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gg1byu0m1aj21hc0u0nnb.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2107#       发表于 2020-6-22 20:27
+
+
+
+
+这个看起来都熟透了
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2108#       发表于 2020-6-22 23:00
+
+
+
+<img src="http://wx4.sinaimg.cn/large/0076nGcEgy1gg19qhbbp9j30u00u0x01.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/0076nGcEgy1gg19qghpeij30tz0srk9r.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 2109#       发表于 2020-6-22 23:35
+
+
+
+
+我才反应过来你们说的小光是九条光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我寻思了好几天星Q的阿光和这个一点儿也不像啊。
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2110#       发表于 2020-6-22 23:52
+
+
+
+ 本帖最后由 Sliurus 于 2020-6-22 23:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47911644&amp;ptid=1860852" target="_blank">灼眼的夏娜酱 发表于 2020-6-22 23:35</a>
+
+我才反应过来你们说的小光是九条光我寻思了好几天星Q的阿光和这个一点儿也不像啊。 ...</blockquote>
+当初就是因为怕弄混才这样分开叫的
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 2111#       发表于 2020-6-22 23:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47911896&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-6-22 23:52</a>
+
+当初就是因为怕弄混才这样分开叫的</blockquote>
+因为我初代还在慢慢补，印象不深刻。所以一提小光第一时间想到的是阿光，哈哈。
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2112#       发表于 2020-6-23 00:16
+
+
+
+
+趁机安利虎面人W
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gg1iivlpupj20zk0k012c.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gg1iiwy0k1j20zk0k047f.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gg1iiys97aj20zk0k0gtk.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2113#       发表于 2020-6-23 11:09
+
+
+
+
+组曲因为地震停过几周？
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 2114#       发表于 2020-6-24 12:45
+
+
+
+
+东映动画股东大会
+
+想要一集不落地播出，但因受现况影响，之后会努力地调整
+
+高木社长表示光之美少女历史久远，粉丝众多，想要好好珍惜
+
+游戏应用关服了，但并不觉得都是失败的 
+
+[https://twitter.com/fatechan/status/1275612089545965568](https://twitter.com/fatechan/status/1275612089545965568)
+
+
+東映アニメーションの株主総会終わった。とりあえずプリキュアに関することを。ヒーリングっとの製作は声優の少人数での収録など調整しながら進行中。約2カ月の遅れ。シリーズ話数は1話も減らすことなく放送したいと考えているがマーチャンダイジングの時期的な展開など影響があるので現在各所と調整中
+
+
+時期が2カ月ずれ込んだことで、(願わくば) “新プリキュアシリーズ”に影響が出ることを色々な調整が必要。あと高木社長がプリキュアシリーズは歴史が長く往年のファンも多いので大事にしていきたいと言っていたな。
+
+
+キュアぱずの今後の展開について。なかなか難しいところがあったのは事実。ただしアプリゲームの全てが失敗だったとは考えていない。今後のアートワークは考えられる。あらゆる可能性を排除せず取り組んでいく
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 2115#       发表于 2020-6-27 21:15
+
+
+
+[https://twitter.com/bfncyobonbon/status/1276852536968798209](https://twitter.com/bfncyobonbon/status/1276852536968798209)
+
+<img src="https://files.catbox.moe/prctes.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2116#       发表于 2020-6-28 08:00
+
+
+
+
+总算复播了
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gg7niu4qlxj21400mix6p.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gg7nkptvflj21400mi1ky.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gg7nkrgswoj21400mix6p.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gg7nku8e6lj21400mix6p.jpg" referrerpolicy="no-referrer">
+
+
+密切接触
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gg7nou7gsxj21400mikjl.jpg" referrerpolicy="no-referrer">
+
+
+哆咙！
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gg7o0dbp5bj21hc0u0x6q.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gg7o6cwramj21hc0u04qs.jpg" referrerpolicy="no-referrer">
+
+
+目前还是按顺序播的样子
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gg7ocic00rj21400mie81.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gg7occhfitj20u019jx6p.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2117#       发表于 2020-6-28 08:25
+
+
+
+ 本帖最后由 風駿 于 2020-6-28 08:28 编辑 
+
+活着的感觉！
+
+
+病毒来袭引发停工停产，难怪这集停播(
+
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2118#       发表于 2020-6-28 08:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我又活过来了！
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  莫伊黑白  
+##### 2119#       发表于 2020-6-28 13:06
+
+
+
+
+好哦！
+
+
+
+
+
+
+
+-----
+
+####  上坂莲华  
+##### 2120#       发表于 2020-6-28 13:37
+
+
+
+
+不是，静电的话和佳你头发不炸的？这发型最害怕静电的吧？
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 2121#       发表于 2020-6-28 13:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47976313&amp;ptid=1860852" target="_blank">xingenge 发表于 2020-6-27 21:15</a>
+
+https://twitter.com/bfncyobonbon/status/1276852536968798209</blockquote>
+UU，你不对劲
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2122#       发表于 2020-6-28 16:51
+
+
+
+
+终于有Q娃看了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+日向果然拿的是马琳的剧本 
+
+不知道是不是幻觉感觉打戏好像变好了一点
+
+
+
+
+
+
+
+-----
+
+####  PRDY  
+##### 2123#       发表于 2020-6-28 19:30
+
+
+
+
+一直忍到晚上爱奇艺居然还是只有720的，什么情况。
+
+
+
+
+
+
+
+-----
+
+####  wilkyway  
+##### 2124#       发表于 2020-6-28 20:20
+
+
+
+
+作画的影响看样子倒是不大 不过音响班的质量明显下降了 变身长bank的节奏和战斗部分的bgm都感觉有点别扭
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 2125#       发表于 2020-6-28 22:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47989244&amp;ptid=1860852" target="_blank">wilkyway 发表于 2020-6-28 20:20</a>
+
+作画的影响看样子倒是不大 不过音响班的质量明显下降了 变身长bank的节奏和战斗部分的bgm都感觉有点别扭 ...</blockquote>
+变身时的BGM好像都变了，是我太长时间没看的错觉吗？
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2126#       发表于 2020-6-28 22:09
+
+
+
+
+莫非觉得这集是这几天才做好的？
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2127#       发表于 2020-6-28 22:29
+
+
+
+ 本帖最后由 最强惠酱 于 2020-6-28 22:30 编辑 
+
+久了不看变身总觉得有点长，日向父亲那是一专没有的bgm，我倒是感觉这集作画还行，毕竟前面也没多强，下集安定青山<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+话说，狗狗的命也是命啊，你不去打受苦的就是拿铁呀日向<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  二条乃梨子  
+##### 2128#       发表于 2020-6-29 01:33
+
+
+
+
+巨病怪效果变成异常现象了啊，看来还是要向现实妥协
+
+
+
+
+
+
+
+-----
+
+####  钱君  
+##### 2129#       发表于 2020-6-29 06:30
+
+
+
+
+！！后知后觉的我！
+
+
+
+
+
+
+
+-----
+
+####  响鬼  
+##### 2130#       发表于 2020-6-29 08:02
+
+
+
+<blockquote>haojie_ma 发表于 2020-6-28 23:05
+变身时的BGM好像都变了，是我太长时间没看的错觉吗？</blockquote>
+BGM没变，但旋律和相应的画面对不上了。
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2131#       发表于 2020-6-29 09:41
+
+
+
+
+现在公布的后面几集还没有剧情加速的迹象吗？
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 2132#       发表于 2020-6-29 16:19
+
+
+
+
+儿童志剧透 q娃地球是空降
+八月应该能登场了吧<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 2133#       发表于 2020-6-29 19:12
+
+
+
+
+这集也太像奥特曼了。社会上出现灵异事件→特搜队调查→发现隐藏的怪物。
+
+
+
+
+
+
+
+-----
+
+####  二条乃梨子  
+##### 2134#       发表于 2020-6-29 20:39
+
+
+
+<blockquote>三合一出现 发表于 2020-6-29 09:41
+现在公布的后面几集还没有剧情加速的迹象吗？
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+Q娃一般是十集出头出合体强化，24集左右追加战士入队，第三季度末出二段变身，看这些剧情这次在第几回出现就知道哪里赶进度了。
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2135#       发表于 2020-6-29 21:49
+
+
+
+
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gg92t1ufehj20u0148kbt.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gg92t1zn5cj216t0u0niq.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gg92t26vi2j217g0u04in.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gg92t2150ej20u00ucqi3.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gg92t275vcj217x0u04ie.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gg92t2eoosj21sw0u07wh.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gg92t2o54aj21bm0u0qng.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2136#       发表于 2020-6-29 22:54
+
+
+
+
+要8月才登场吗？
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 2137#       发表于 2020-6-29 23:46
+
+
+
+
+居然上架脆脆卷了！不过为啥是从13话开始<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202006/29/234457jynlnh199de9y1eb.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2020-06-29_10-42-55.png</strong> (558.54 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-29 23:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2138#       发表于 2020-6-30 00:38
+
+
+
+
+这集感觉好不一样，竟然有一丝悬疑味
+
+变身bank是完整放完的，可能是停播这么久让观众来重新欣赏一遍吧（还能拖时长）。所以bgm对不上，甚至从来没听过的后半段都出来了
+
+这集脚本是两个人，果然还是改过剧本了？
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 2139#       发表于 2020-6-30 11:33
+
+
+
+
+至少要把剩下3瓶（元素瓶）收完吧，已经有六瓶了 然后再换个花样（指加人进来）
+
+感觉老鼠（原来是啥动物来着？忘了）以后会踩着三位前辈上位啊
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2140#       发表于 2020-6-30 13:40
+
+
+
+
+狗妈妈期待
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  vxzms  
+##### 2141#       发表于 2020-6-30 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48004117&amp;ptid=1860852" target="_blank">shimmy1996 发表于 2020-6-29 23:46</a>
+居然上架脆脆卷了！不过为啥是从13话开始</blockquote>
+13开始跟播 1-12以后补上
+
+
+
+
+
+
+
+-----
+
+####  DARK_HGCG  
+##### 2142#       发表于 2020-6-30 19:36
+
+
+
+<blockquote>xingenge 发表于 2020-6-30 11:33
+至少要把剩下3瓶（元素瓶）收完吧，已经有六瓶了 然后再换个花样（指加人进来）
+
+感觉老鼠（原来是啥动物来 ...</blockquote>
+海狸鼠
+
+二战前日本军队为了获取皮毛而引进过去养殖的
+
+后来野化破坏生态
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2143#       发表于 2020-7-1 06:43
+
+
+
+
+那剧场版怎么办？
+
+
+
+
+
+
+
+-----
+
+####  HGCG2  
+##### 2144#       发表于 2020-7-1 06:52
+
+
+
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1ggb2ld34pjj20u00u0jtw.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1ggb2ld9grij20u00u0wl3.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1ggb2lczvwjj20u00u0q5b.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1ggb2ld4nnpj20u00u0tci.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1ggb2ldhiz8j20u00u0gu5.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1ggb2ldeowkj20u00u00zy.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1ggb2ldl8fgj20u00u0grd.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1ggb2ldpc8cj20u00u00yw.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1ggb2ldqxdqj20u00u0n2y.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2145#       发表于 2020-7-1 17:17
+
+
+
+
+第几次竖琴了啊
+
+
+
+
+
+
+
+-----
+
+####  HGCG3  
+##### 2146#       发表于 2020-7-4 12:20
+
+
+
+
+玩具演示
+[https://www.weibo.com/tv/show/10 ... om=old_pc_videoshow](https://www.weibo.com/tv/show/1034:4522889945481228?from=old_pc_videoshow)
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 2147#       发表于 2020-7-4 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48062776&amp;ptid=1860852" target="_blank">HGCG3 发表于 2020-7-4 12:20</a>
+
+玩具演示
+
+https://www.weibo.com/tv/show/1034:4522889945481228?from=old_pc_videoshow</blockquote>
+因为是竖琴所以是Hurricane
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 2148#       发表于 2020-7-4 17:01
+
+
+
+
+这个画师很好，不懂楼里有没分享过，画偶活美妙Q娃系列的
+[https://twitter.com/tibasa9](https://twitter.com/tibasa9)
+
+<img src="https://files.catbox.moe/di0n48.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/s5ewlf.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/5x1ida.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/6kykyk.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/7rtzoa.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/2aaavs.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/yxor4a.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/f1pw5v.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/qq6uk4.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 2149#       发表于 2020-7-4 19:02
+
+
+
+<blockquote>噗哩噗 发表于 2020-7-4 16:21
+因为是竖琴所以是Hurricane</blockquote>
+百香果？
+
+
+
+
+
+
+
+-----
+
+####  HGCG-闪  
+##### 2150#       发表于 2020-7-5 07:59
+
+
+
+
+这脸我熟 ​​​​
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1ggfqwux324j21400mib29.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1ggfqwwy10fj21400mikjl.jpg" referrerpolicy="no-referrer">
+
+
+兔子可爱
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1ggfr3n739ej21400mi4qp.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1ggfr3s0smgj21400mie81.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1ggfr3u15bwj21400mie81.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1ggfr43irttj21400mi4qp.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1ggfr4d6620j21400mix6p.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1ggfr4jlh5aj21400mix6p.jpg" referrerpolicy="no-referrer">
+
+
+羡慕老鼠
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1ggfrfv1o86j21400mi7wi.jpg" referrerpolicy="no-referrer">
+
+
+以前的Q娃
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1ggfritgmbkj21400mib29.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1ggfrkgrmi0j21400mie81.jpg" referrerpolicy="no-referrer">
+
+
+动画进度落后，广告依然要按时播放……
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1ggfrn6euk1j21400miqv6.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1ggfrn6qvv5j21400mi1ky.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1ggfrn72r6mj21400mi7wi.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2151#       发表于 2020-7-5 08:09
+
+
+
+
+最喜欢看小女孩逛街玩耍，这集氛围挺好，下集又吵架<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+广告前起码还讲了点老q娃的历史<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2152#       发表于 2020-7-5 08:10
+
+
+
+
+就是说追加战士实际出生在过去的可能性很大，但究竟是不是正太口中所说的那位呢？
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2153#       发表于 2020-7-5 08:20
+
+
+
+<img src="https://p.sda1.dev/0/ff400ccfe6b4f6a33a31984ab6621b85/2020-07-05_08-20-20.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 2154#       发表于 2020-7-5 08:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48072847&amp;ptid=1860852" target="_blank">風駿 发表于 2020-7-5 08:10</a>
+就是说追加战士实际出生在过去的可能性很大，但究竟是不是正太口中所说的那位呢？ ...</blockquote>
+我觉得是后代，和拿铁一起变身，不过也太外国人了
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2155#       发表于 2020-7-5 08:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48072841&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2020-7-5 08:09</a>
+
+最喜欢看小女孩逛街玩耍，这集氛围挺好，下集又吵架
+
+广告前起码还讲了点老q娃的历史 ...</blockquote>
+这差不多就是日本庙会的景象，由此日本小朋友们会很有代入感
+
+
+大型新人应该至少是奶奶Q娃了吧。不同辈的Q娃还从未组过队
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2156#       发表于 2020-7-5 11:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比广告出现得还迟的Q娃。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  HGCG-闪  
+##### 2157#       发表于 2020-7-5 19:02
+
+
+
+
+为什么呢？
+<img src="http://wx3.sinaimg.cn/large/6f62a4d4ly1ggg8boohyfj20pg0ecgmf.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 2158#       发表于 2020-7-5 20:07
+
+
+
+
+新来的也谐星化了。
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2159#       发表于 2020-7-5 20:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48078985&amp;ptid=1860852" target="_blank">HGCG-闪 发表于 2020-7-5 19:02</a>
+
+为什么呢？</blockquote>
+如果这是个主线相关伏笔，那么可能Q娃侧的治愈力给了和佳一定程度上的加护，如此猜测后期大BOSS出来搞事让环境变恶劣时会给和佳身体制造不小的负担
+
+
+另外，泡脚那个镜头真远不如前年
+
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 2160#       发表于 2020-7-5 20:55
+
+
+
+
+说起来，上集里黄猫额头上的鱼形印记有什么说法吗？其它两只都没有啊
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2161#       发表于 2020-7-5 21:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48080706&amp;ptid=1860852" target="_blank">haojie_ma 发表于 2020-7-5 20:55</a>
+
+说起来，上集里黄猫额头上的鱼形印记有什么说法吗？其它两只都没有啊</blockquote>
+本来猫科带花纹又不新鲜，刚好花纹像鱼为什么一定要什么说法
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2162#       发表于 2020-7-5 23:43
+
+
+
+
+这集最后说奶奶Q娃那段 应该不是加速剧情临时加的吧 感觉很自然……
+
+
+和佳这后期要至少趟医院1-2集吧
+
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 2163#       发表于 2020-7-5 23:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48083108&amp;ptid=1860852" target="_blank">leleq 发表于 2020-7-5 23:43</a>
+
+这集最后说奶奶Q娃那段 应该不是加速剧情临时加的吧 感觉很自然……
+
+
+和佳这后期要至少趟医院1-2集吧</blockquote>
+应该是直接播吧，否则东映英雄档三部都要删减，还不如直接明年新开播时段后移
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 2164#       发表于 2020-7-6 00:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48083159&amp;ptid=1860852" target="_blank">月夜凝雪 发表于 2020-7-5 23:48</a>
+应该是直接播吧，否则东映英雄档三部都要删减，还不如直接明年新开播时段后移 ...</blockquote>
+嗯应该是有点风声鹤唳想太多了
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  上坂莲华  
+##### 2165#       发表于 2020-7-6 02:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48080088&amp;ptid=1860852" target="_blank">風駿 发表于 2020-7-5 20:12</a>
+如果这是个主线相关伏笔，那么可能Q娃侧的治愈力给了和佳一定程度上的加护，如此猜测后期大BOSS出来搞事让 ...</blockquote>
+变成Q娃后会把身体换成可以用魔力修复的
+然后灵魂（
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 2166#       发表于 2020-7-6 08:33
+
+
+
+
+感觉变健康是因为疫情改的剧本....
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2167#       发表于 2020-7-6 08:43
+
+
+
+ 本帖最后由 風駿 于 2020-7-6 08:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48085246&amp;ptid=1860852" target="_blank">傲娇的章鱼 发表于 2020-7-6 08:33</a>
+
+感觉变健康是因为疫情改的剧本....</blockquote>
+第一集开始就是完全健康的
+
+
+也许是重病中得到了某种意志的帮助定下约定，受指引来到了这个小镇(不是
+
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2168#       发表于 2020-7-6 10:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48084269&amp;ptid=1860852" target="_blank">上坂莲华 发表于 2020-7-6 02:07</a>
+变成Q娃后会把身体换成可以用魔力修复的
+然后灵魂（</blockquote>
+英灵化？
+
+
+
+
+
+                           
