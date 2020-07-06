@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-06 14:13** 
+> ## **本文件最后更新于2020-07-06 18:14** 
 
 
 
@@ -9,7 +9,7 @@
 
 
 
- 本帖最后由 神楽mea 于 2020-7-5 21:38 编辑 
+ 本帖最后由 神楽mea 于 2020-7-6 16:17 编辑 
 
 
 
@@ -68,7 +68,7 @@
 
 因为车轱辘已久且讨论内容会牵扯到新仇旧怨导致楼里出现一堆和mea不太相关的内容，所以有关字幕组话题请尽量在神乐mea字幕组专楼讨论，楼友请尽量使用温和的语言提示一下在楼里对字幕组有怨言的朋友转楼讨论→[神乐mea字幕组讨论楼](https://bbs.saraba1st.com/2b/thread-1932768-1-1.html)
 有关Mea和湊阿库娅的贴贴讨论也一样，版面上的贴贴楼太多了可以自己找
-论坛ID为@[かながわけん咩](https://bbs.saraba1st.com/2b/space-uid-531967.html) 的坛友，由于您提及有关mea的任何的话题可能会招致其他楼友的不快，请您不要在此楼讨论任何话题，谢谢。[→临时版规](https://bbs.saraba1st.com/2b/thread-1945906-1-1.html)
+论坛ID为@小博禹、纯良天狗、第四惑星、第四祸星、第七惑星、小麻的狗狗、小麻和狗狗、两只狗狗、meameasuki、nopan咩咩、PekoPekoPeko、咩咩的工作、咩咩的那个、かながわけん咩 的坛友，不管您是不是同一个人，由于您提及有关mea的任何的话题都可能会招致其他楼友的不快，请您不要在此楼讨论任何话题，这是第一次告知，谢谢。[→临时版规](https://bbs.saraba1st.com/2b/thread-1945906-1-1.html)
 
 Mea相关链接： 
 主频道，喜欢mea的大家请务必点一个订阅~：[🍥MEA的主频道🍥](https://bit.ly/3dfKbzG)游戏实况为主的副频道（更新频率低）：[副频道](https://bit.ly/2AiWs7K)Mea第三次回生的推特VoV：[推特](https://www.twitter.com/KaguraMea_VoV)FANBOX，赞助的话可以看到mea的限定投稿，各种粉丝内部活动尽在FANBOX：[FANBOX](https://www.pixiv.net/fanbox/creator/32024360)TC频道：[TwitCasting](https://ja.twitcasting.tv/kaguramea_vov)B站官方账号，字幕组的大家努力翻译成中文的节目都在这里：[B站官方账号](https://space.bilibili.com/349991143/#/video)B站直播间：[BILIBILI直播间](https://live.bilibili.com/12235923)B站部分海盗组织：[神乐Mea同好会](https://space.bilibili.com/479729029) [千里夜雨酱](https://space.bilibili.com/1852057) [环MEA日报](https://space.bilibili.com/412628370) [法兰西酒厂](https://space.bilibili.com/855568)Aisakahammer整理的非官号熟肉合集：[熟肉合集](https://bbs.nga.cn/read.php?tid=19139330&amp;_ff=-1734295)由[云鬼](https://space.bilibili.com/10048661)桑整理的Mea的直播歌回合B站合集（2018.07.06至2019.08.31）：
@@ -10025,6 +10025,27 @@ mea摸了个**（</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yuyuyuyu|-1||
+| 黒長直姫|-1|请滚|
+| 路人庚|-1|请不要在这楼内留言|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -10068,4 +10089,806 @@ syl，
 
 
 
-                              
+
+
+-----
+
+####  Sanguine  
+##### 575#       发表于 2020-7-6 14:16
+
+
+
+
+不知道禁转那天在b站播要不要提前申请，不过字幕组就算关心也没必要这么早去问<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 576#       发表于 2020-7-6 15:08
+
+
+
+
+想起来去年她最勤奋，最积极、最能整活的那段时间就撞上了禁播，她本人又不怎么来B限，直接导致人气雪崩。后来转播开了，可惜她已经变成一个只吹水和唱歌的V了，难得玩游戏也是跑到T台不转播，直接导致竞争力不足，外加外面anti天天撒黑料，她的B站粉丝基本已经不涨了。这要是再禁播，我估计她在B站就真的走到头了，天狗也要被扫进历史的垃圾堆了。M12怕不是最后一栋楼了
+
+不过有一点好事，最近百度和贴吧搜vtuber的时候基本已经看不到黑mea的帖子了，反而全是holo了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这巫妖王算是被女妖之王扒头盔了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 577#       发表于 2020-7-6 15:12
+
+
+
+
+至少m13会有的。如果ddd开出来或者咖啡厅开出来的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 578#       发表于 2020-7-6 15:12
+
+
+
+
+活的事业粉出现了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我觉得做个守门员就挺不错的。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 579#       发表于 2020-7-6 15:31
+
+
+
+ 本帖最后由 路人庚 于 2020-7-6 15:33 编辑 
+
+最积极、最能整活的那段时间难道不是18年刚出道的前2、3个月吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后就被各种普通拳、重拳、致死拳殴打了大半年
+
+
+其实最近的状态也不错，只是没怎么玩游戏了而已，估计是避一避游戏授权事件的风波
+
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 580#       发表于 2020-7-6 15:32
+
+
+
+
+什么叫不怎么来b限，去年这会反而是来阿b最勤的时候吧，她自己说的因为没有转播担心这边的观众会寂寞，基本保证每周都有一次，而且去年七八月可是直播频率最高的时候啊，烂梗不火了以后主杂谈唱歌的日v在阿b能在保持这样的热度很好了，禁播想看的自然会找办法，说不定404观众人数还会升。想这些还不如想想今天她要怎么动
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 581#       发表于 2020-7-6 15:37
+
+
+
+
+最强联动月可是在今年啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 582#       发表于 2020-7-6 15:52
+
+
+
+
+杂谈唱歌怎么了，气冷抖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+打游戏又不是哈弟那种顶尖水准能吸游戏粉，靠游戏整活你个个人势又蹭不到热度，不爱播游戏所以不播游戏呗
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 583#       发表于 2020-7-6 15:54
+
+
+
+
+最整活的期间，明明是刚出道天不怕地不怕那段时间。现在已经是个被社会毒打过的怂逼了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 584#       发表于 2020-7-6 15:54
+
+
+
+ 本帖最后由 A2014720 于 2020-7-6 15:57 编辑 
+
+tc播的少就说明在意数字了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+两周年重大发表第一件事是生娃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，反正现在她不急，安心看直播就好了，平时数字看个乐就行
+
+上次她说不想播游戏是因为怕嘲讽，这么说我一下理解了，游戏随他去吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 585#       发表于 2020-7-6 15:55
+
+
+
+
+本土早凉了，哪儿还有核心粉留给箱外的小个人势啊。现在就是看看能不能趁大家扩圈的这段时间吸点尾气，留住鬼佬，转化成能打钱的观众，顺便留住国内的老天狗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 586#       发表于 2020-7-6 16:07
+
+
+
+
+mea为我们深刻的演示了刚入社会的年轻人是如何被社会这个老师深刻教育的最佳例子，syl今天的她会不会动呢……
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 587#       发表于 2020-7-6 16:10
+
+
+
+
+你咩姐出道的时候就是杂谈唱歌好吧，那时候玩的游戏也是楼友熟悉的dededebuff死喷乱涂和马车还有lol
+让你咩姐播游戏很困难知道吗，首先，她不是一个会去主动找游戏玩的人，她可能看别人玩了，自己也想玩这样的。这么看，人家箱内团建的游戏她玩不了，lol本土没人看，麻将，mc都是杂谈游戏，这人敢不敢播任天堂都是个问题，fps她不喜欢玩，个人势播3a有没有人看要打个❓，楼友去应聘个运营吧，这问题不好解决<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  石破天  
+##### 588#       发表于 2020-7-6 16:17
+
+
+
+
+打游戏有什么好看的，杂谈唱歌才是管人该干的事
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 589#       发表于 2020-7-6 16:20
+
+
+
+
+管人玩的游戏大多跟风
+
+
+yhm脑子大多花田
+
+
+不要游戏不要游戏<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 590#       发表于 2020-7-6 16:21
+
+
+
+ 本帖最后由 単推し人 于 2020-7-6 16:26 编辑 
+
+之前联动月各种男人联动走了一遭404数字倒是涨的不错，不过感觉光涨粉没人打钱啊，国内倒是debuff就是了，一直有人爆炸，小姑娘还是不懂怎么养独角兽啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+ps：有sl分流现在她的总收入也不好统计了，不过我个人大概看了一下油管和阿b的总收入感觉是在下降的，阿咩是时候和我结婚隐退力<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 591#       发表于 2020-7-6 16:21
+
+
+
+
+我只想她把剧情好的游戏当成同步视听的下位替代<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 592#       发表于 2020-7-6 16:27
+
+
+
+
+当年还有pubg呢<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+没事播点手游抽卡打会szb也行，当然她选择虚无tc<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 593#       发表于 2020-7-6 16:32
+
+
+
+
+一堆独立游戏可以播呢，可你咩只会玩辣鸡竞技游戏，还菜<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 594#       发表于 2020-7-6 16:34
+
+
+
+
+apex也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，独立小游戏也行啊。剧情作听她吐槽也行啊
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 595#       发表于 2020-7-6 16:36
+
+
+
+ 本帖最后由 惑星 于 2020-7-6 16:42 编辑 
+
+问题是这独立游戏她找的到吗，她入游戏坑多长时间了，品味如何啊？至少我喜欢打竞技游戏的朋友对这些一问三不知<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有一个点就是，个人势潜在观众数量远不如箱，播些小众游戏能不能吸引人是个问题，别到时候播个debuff出来
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 596#       发表于 2020-7-6 16:38
+
+
+
+
+没游戏也行<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">，播就可以了，tc也好
+
+那么，可以发条推特动一动嘛<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 597#       发表于 2020-7-6 16:53
+
+
+
+
+其实播游戏并不见得就能火的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不要装事业民了，就说想看不好吗
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 598#       发表于 2020-7-6 16:58
+
+
+
+
+前略，天国的一心
+
+
+
+
+
+
+
+-----
+
+####  ロキシー  
+##### 599#       发表于 2020-7-6 17:01
+
+
+
+
+车轱辘游戏本质不还是自己想看
+
+我直说了，想看她玩艾迪芬奇的记忆
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 600#       发表于 2020-7-6 17:06
+
+
+
+
+我想看p5s
+里面有个国3的小姑娘做主播的，叫长谷川茜，感觉和她好像(做直播的原因方面)
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 601#       发表于 2020-7-6 17:07
+
+
+
+
+最主要的不是游戏本身可以更容易得带来直播效果吗，但是她一直对自己打游戏的效果评价不高，这才是问题。今年除了b限，单人游戏都要绝迹了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+快点动动动动动动动动动动动动动动动动动动<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 602#       发表于 2020-7-6 17:09
+
+
+
+
+她玩沙雕小游戏效果还行的，可惜玩的少，遗憾
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 603#       发表于 2020-7-6 17:10
+
+
+
+
+所以指的是她对自己的游戏直播的评价，我一直很期待她玩玩各种沙雕小游戏的。<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+上次盒限里也说了，回了个沙雕表情）
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 604#       发表于 2020-7-6 17:11
+
+
+
+
+别游戏了，真不爱看，除非是那种沙雕小游戏，比如火柴人大战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 605#       发表于 2020-7-6 17:16
+
+
+
+
+沙雕小游戏的话其实b上很多up有作业可抄的，我也买了不少（然后基本没玩过
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 606#       发表于 2020-7-6 17:24
+
+
+
+
+我想看她播塞尔达<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">前段时间看男v玩塞尔达发现适应不了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 607#       发表于 2020-7-6 17:26
+
+
+
+
+想看手游，因为我不怎么玩<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 608#       发表于 2020-7-6 17:26
+
+
+
+
+能听到她声音就够了，快播吧，求你了咩姐
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 609#       发表于 2020-7-6 17:28
+
+
+
+
+都说了从这周开始要出门recording两三天会降低直播频率，这才第一天就这样了后面还怎么过啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 610#       发表于 2020-7-6 17:32
+
+
+
+ 本帖最后由 惑星 于 2020-7-6 17:33 编辑 
+
+说白了她在b观众基数大一些，观众成分也多，播游戏更友好
+
+不如让她一周两次b限<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+何止出门的两天会降低频率啊，连出门前都降低频率了，这人不想出门到天天不安绝对是怕死吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 611#       发表于 2020-7-6 17:38
+
+
+
+
+主要还是一动不动的问题，上个月出门每天都有推和饭盒不是那么戒断，这个月什么都不发了就像突然失去了音讯了一样，不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 612#       发表于 2020-7-6 17:41
+
+
+
+
+去的地方人太多怕掏出手机暴露身份可能性微存
+
+
+
+
+
+
+
+-----
+
+####  Pseudoephedrine  
+##### 613#       发表于 2020-7-6 17:42
+
+
+
+
+一动不动，指凌晨两点发卖萌推
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 614#       发表于 2020-7-6 17:42
+
+
+
+
+她这么喜欢玩LOL，有人给她提个意见，整个b限LOL水友赛中路solo嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以当个纪念回节目的。而且功利点，上亚索，盲僧这种，甚至不用说话就能有节目效果。当然了，她要心态好，别被真的心态打崩了。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 615#       发表于 2020-7-6 17:43
+
+
+
+
+15个小时前刚发了推，这个月直到今天（6号）发了5个饭盒，最近一次直播是要熬死人的通宵直播
+
+怎么就这个月突然什么都不发了失去音讯啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ggyouan  
+##### 616#       发表于 2020-7-6 17:44
+
+
+
+
+希望是在忙ddd和bls的live的事情
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 617#       发表于 2020-7-6 17:49
+
+
+
+ 本帖最后由 pei23333 于 2020-7-6 17:52 编辑 
+
+我是说从她这周出门算起阿，上个月出门不就是早上先来个早安推下午发个饭盒，今天一点音讯没有，有、难顶。啊凌晨发了早安推没看到，那没事了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 618#       发表于 2020-7-6 18:05
+
+
+
+<blockquote>犬山たまき×神楽めあ×赤坂アカコラボ配信とかいう字面だけでクソおもろいのずるい
+
+由
+
+翻译自 日语
+
+Inuyama Tamaki x Kagura Mea x Akasaka Aka合作是他妈的有趣的把戏</blockquote>
+smjb翻译草
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 619#       发表于 2020-7-6 18:08
+
+
+
+
+原本以为方舟指令有个工商来着
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 620#       发表于 2020-7-6 18:12
+
+
+
+
+联动还有十天<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+想想这周末她的操作就是在故意搞我<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                             
