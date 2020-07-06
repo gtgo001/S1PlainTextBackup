@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-06 20:13** 
+> ## **本文件最后更新于2020-07-06 22:14** 
 
 
 
@@ -11350,4 +11350,1194 @@ smjb翻译草
 
 
 
-                            
+
+
+-----
+
+####  GRMeA104  
+##### 648#       发表于 2020-7-6 20:13
+
+
+
+
+贷款已经准备好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 649#       发表于 2020-7-6 20:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐子壬我鲨了你
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 650#       发表于 2020-7-6 20:16
+
+
+
+
+完了，怕是又要有人爆炸，怪文书预警<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+什么时候大火才能学会只有不看联动才是最好的心态稳定剂呢，啊，好想回到去年，哪怕让我看贴贴也比现在好啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 651#       发表于 2020-7-6 20:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贷，随便贷，都可以贷
+
+
+快进到道歉直播2.0<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（真的会有吗？
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 652#       发表于 2020-7-6 20:21
+
+
+
+
+引流来的一堆乐子粉钱也不打就天天在评论区无端发散污染环境，时不时还有独角兽爆炸风险
+
+啊，苔姨，我🦈了你！<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 653#       发表于 2020-7-6 20:24
+
+
+
+
+会有的会有的，到时候我带头冲锋，大伙跟我一起上
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 654#       发表于 2020-7-6 20:26
+
+
+
+
+建议出黑屁只能打钱功能<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 655#       发表于 2020-7-6 20:29
+
+
+
+
+咩姐会走小肥妹的路吗，已经走过了？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 656#       发表于 2020-7-6 20:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐会道歉直播，就凭这一手就走不了小肥妹的路
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 657#       发表于 2020-7-6 20:32
+
+
+
+
+带🔥我们去冲了直播间<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 658#       发表于 2020-7-6 20:32
+
+
+
+
+乐子人确实挺烦人的，还带起了不少车轱辘<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+有一说一舞mea联动观感比之前好了不少，能接受的可以去看看
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 659#       发表于 2020-7-6 20:33
+
+
+
+
+你咩姐道歉直播老牛逼了，拿着怪文书逐句分析，最后的结论是没有把握住距离，下次注意，中肯的要死，我都怀疑她去哪取经了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 660#       发表于 2020-7-6 20:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">舞元一开始不想被蹭的感觉太强烈了点，后面几次确实还行
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 661#       发表于 2020-7-6 20:38
+
+
+
+ 本帖最后由 単推し人 于 2020-7-6 20:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48094784&amp;ptid=1945537" target="_blank">甘栗No.007 发表于 2020-7-6 20:32</a>
+
+乐子人确实挺烦人的，还带起了不少车轱辘
+
+有一说一舞mea联动观感比之前好了不少，能接受的可以去看 ...</blockquote>
+俺觉得不行，现在不看五元的基本上都是已经有了梁木的人，这种人最好的办法就是永远别看，当抱着试探的心理去尝试的时候，基本不会是冰释前嫌而是只要阿咩哪里又戳到了他的神经，梁木马上极巨化生长或者是自爆，一般就这两个结局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 甘栗No.007| + 1|那还是悠着点吧，伐木果然没这么简单（.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 662#       发表于 2020-7-6 20:42
+
+
+
+
+你咩姐当时好歹深夜TC解释了一波（联动只是工作）并且联动后会发推讨好gachi恋，比小肥妹还是高出几个level的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 663#       发表于 2020-7-6 20:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就快了就快了，就像过往的许多cp一样，过完这个夏天舞元咩阿也就到头了，噶吃们再忍耐一会
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 664#       发表于 2020-7-6 20:46
+
+
+
+
+唉，mea还有能力弄个新的联动对象吗，鼻血组腰斩真tm亏死了
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 665#       发表于 2020-7-6 20:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我相信船长还是有机会的，估计之前没有合适的切入角度，靠苔姨这层找个理由再续前缘
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 666#       发表于 2020-7-6 20:47
+
+
+
+
+所以鼻血组凉了是自然而然还是谁的锅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 667#       发表于 2020-7-6 20:48
+
+
+
+ 本帖最后由 时雨rain 于 2020-7-6 20:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">最近出去不是要家庭旅游吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">3d不是录播的话
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 668#       发表于 2020-7-6 20:51
+
+
+
+
+肯定要过完有出门工作预定的这两个礼拜才去旅行啊
+鼻血组散了要怪就怪两大箱开始明争暗斗了吧（
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 669#       发表于 2020-7-6 20:51
+
+
+
+
+能猜到下一个cp的人还会在这水论坛吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 670#       发表于 2020-7-6 20:52
+
+
+
+
+外联禁令一下来那个组合能头铁活下来啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 671#       发表于 2020-7-6 20:54
+
+
+
+
+不要cp，不管男的女的，不要cp。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 672#       发表于 2020-7-6 20:54
+
+
+
+
+比起新cp，我还是更希望她能搞个简单的家用3D，开启美妙的日常3D直播梦
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 673#       发表于 2020-7-6 20:54
+
+
+
+
+此情此景 只希望大头或者bfm重新出道 和你咩姐组成新CP 大杀四方
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 674#       发表于 2020-7-6 20:57
+
+
+
+
+能不能有异种cp?
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 675#       发表于 2020-7-6 20:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到新人首播决定去留
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 676#       发表于 2020-7-6 20:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">希望新人是性病友人，至少是个很会骗人的美少女
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 677#       发表于 2020-7-6 20:58
+
+
+
+
+我觉得与其在这车轱辘联动对象，不如好好填一下二周年的那个问卷，给她点正反馈也好（主要是节目效果上的正反馈），让她明白自己哪些节目受欢迎。一直觉得你咩姐是那种越夸越有劲的直播者，你看建筑王那会儿，被anmr一夸，直接成为劳模
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 678#       发表于 2020-7-6 20:59
+
+
+
+
+二周年问卷就20个字填个鬼啦
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 679#       发表于 2020-7-6 20:59
+
+
+
+
+想要船长咩联动，粽子咩联动<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 680#       发表于 2020-7-6 21:00
+
+
+
+
+不是新cp啊，鼻血组这样的怎么看都不是cp吧，就比如说这个四人麻将其实也算是固定节目了，现在给个人势的平台太少了，混个脸熟也行啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 681#       发表于 2020-7-6 21:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别人做好的商品为什么要给你这个什么好处都给不了的人来拱
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">好好做好她的tc主，最后变成一个拼命舔耳的asmr深夜生放主不是她最好的结果吗
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 682#       发表于 2020-7-6 21:06
+
+
+
+
+那若干年之后会不会有*卡古拉x娅舔耳asmr限定合集*的搬运工啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 683#       发表于 2020-7-6 21:09
+
+
+
+
+讲真，她要是舔耳的话，在我这里会降低好感度....（整活向除外）
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 684#       发表于 2020-7-6 21:10
+
+
+
+
+qs 还是地表最自由的风格比较适合她
+当然现在已经离这个风格越来越远了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 685#       发表于 2020-7-6 21:10
+
+
+
+
+那就是放弃坚守和节操了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，你咩姐必不会好吧
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 686#       发表于 2020-7-6 21:11
+
+
+
+
+别说asmr了，其实就连ghs话题讲多了我这也有点降好感度，阔能这就是独角兽吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 687#       发表于 2020-7-6 21:14
+
+
+
+
+我倒是挺喜欢她讲黄段子的
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 688#       发表于 2020-7-6 21:15
+
+
+
+
+放鸽子的时候还是很自由的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 689#       发表于 2020-7-6 21:16
+
+
+
+
+希望唯独放鸽子的时候不要自由
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 690#       发表于 2020-7-6 21:17
+
+
+
+
+你咩这种搞太过露骨的东西的确有种恶堕感<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 691#       发表于 2020-7-6 21:17
+
+
+
+
+有些时候她那种话题讲多了会给我一种她不够自爱的感觉，老封建残余了，快来个拳师打醒我<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 692#       发表于 2020-7-6 21:20
+
+
+
+
+啊这，ghs话题是我最喜欢的地方了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 693#       发表于 2020-7-6 21:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夸不夸不是主要，建筑王那会儿她是体会到了和大家一起玩的乐趣，这人本质还是挺不喜欢寂寞的（你丫属兔子的吗）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">u1s1，想康船长啊粽子啥的联动苔姨倒是可利用的突破口，以她的功利心只要观众反馈的拱火人数到一定程度大概率能给你整出来
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 694#       发表于 2020-7-6 21:20
+
+
+
+
+把某些galgame玩一遍， 某些小说/漫画看一遍就治好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 695#       发表于 2020-7-6 21:22
+
+
+
+ 本帖最后由 时雨rain 于 2020-7-6 21:23 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">可惜了，这女人没有先天优势，asmr可能比不过其他人吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唯一一点可以比得过的就是在听她做asmr前把她以前对asmr见解的话听一遍，或者在她做asmr后把她的话重复一遍跳脸比较有快感吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊，是恶堕啊
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 696#       发表于 2020-7-6 21:23
+
+
+
+
+你咩姐所谓的ghs还是一股小屁孩的感觉，跟色情还不一样。想了一下你咩姐认真卖弄色情的样子嗯了，都怪发情楼那个短篇<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 697#       发表于 2020-7-6 21:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虚拟人岂是如此不便之物，先天缺陷可以用虚拟弥补，整个高质量mmd，该好的还是好一地
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 698#       发表于 2020-7-6 21:27
+
+
+
+
+那次手游工商时的DT逛窑子感我就很喜欢啊，那两次工商回在我这里算得上是最喜欢的几次企划了
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 699#       发表于 2020-7-6 21:28
+
+
+
+
+说起来我总感觉她是因为家里人管着所以不敢ghs
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 700#       发表于 2020-7-6 21:29
+
+
+
+
+*我父母在看我直播别骂了*?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 701#       发表于 2020-7-6 21:30
+
+
+
+
+她老妈还真会看她直播，就是不知道是不是常常看
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 702#       发表于 2020-7-6 21:30
+
+
+
+
+父母管着还能直播聊abo呢
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 703#       发表于 2020-7-6 21:31
+
+
+
+
+父母知道她的钱都花在av和bl上还妄想掰弯观众吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 704#       发表于 2020-7-6 21:32
+
+
+
+
+聊abo有啥不可的。我还跟父母聊ntr和futa呢
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 705#       发表于 2020-7-6 21:32
+
+
+
+
+我记得她说过她父母就听听歌回，杂谈游戏啥的不看的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 706#       发表于 2020-7-6 21:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我有点想知道她妈看直播的时候看见自家女儿被各路死宅发情猛舔有何感想
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 707#       发表于 2020-7-6 21:38
+
+
+
+
+想听她在忧伤而且身体不舒服的时候唱苦情歌<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 708#       发表于 2020-7-6 21:40
+
+
+
+
+喜欢短篇就给点反馈，一两个啥都不说
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| noaki| + 1|反馈|
+| GRMeA104| + 1|反馈|
+| 路人庚| + 1|反馈|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 709#       发表于 2020-7-6 21:43
+
+
+
+
+我佛系到要死，什么都能看下去。你们这么多想法怎么不多发点推<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">别直接at和diss本人我都能接受
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 710#       发表于 2020-7-6 21:45
+
+
+
+
+短篇还写得蛮劲的,还会有更新吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 711#       发表于 2020-7-6 21:50
+
+
+
+
+情弱问一句：短篇是啥
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 712#       发表于 2020-7-6 21:51
+
+
+
+
+反馈，短篇有种打破底线的感觉，背德感很强，不说了，我怕我变态<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 713#       发表于 2020-7-6 21:52
+
+
+
+
+别说现在了估计BS时期直播都看过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 714#       发表于 2020-7-6 22:05
+
+
+
+
+我也想知道短篇是啥（
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 715#       发表于 2020-7-6 22:07
+
+
+
+
+茶哥在发情楼写的那个吧，挺好用的
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 716#       发表于 2020-7-6 22:13
+
+
+
+
+咩姐居然也有能被拿来用的一天啊<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                          
