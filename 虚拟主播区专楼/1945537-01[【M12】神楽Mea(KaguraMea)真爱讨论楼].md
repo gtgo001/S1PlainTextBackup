@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-06 10:13** 
+> ## **本文件最后更新于2020-07-06 14:13** 
 
 
 
@@ -9794,4 +9794,278 @@ mea摸了个**（</blockquote>
 
 
 
-                               
+
+
+-----
+
+####  A2014720  
+##### 559#       发表于 2020-7-6 10:17
+
+
+
+
+希望早点办完事<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 560#       发表于 2020-7-6 10:21
+
+
+
+
+放你们死社畜一马
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 561#       发表于 2020-7-6 10:27
+
+
+
+ 本帖最后由 Kayz996 于 2020-7-6 10:31 编辑 
+
+感谢蔴蔴，昨晚睡了个好觉<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 562#       发表于 2020-7-6 11:17
+
+
+
+
+她放鸽子是真的对来越熟练了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 563#       发表于 2020-7-6 11:30
+
+
+
+ 本帖最后由 A2014720 于 2020-7-6 11:34 编辑 
+
+回到熟悉的节奏了，是上两个月联动太多太反常搞得我以为她变了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+人真的很难变啊
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 564#       发表于 2020-7-6 11:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">她不舍得社畜熬夜，心里还是有我的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 565#       发表于 2020-7-6 12:30
+
+
+
+
+传闻又要禁转播？
+
+希望3d日期不要和禁转播时间撞上<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 566#       发表于 2020-7-6 12:33
+
+
+
+
+只要我在油管播得够少，禁转就追不上我
+不说了，这就开个tc突击
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 567#       发表于 2020-7-6 12:35
+
+
+
+真要禁也就一天，让字幕组私联一下不就得了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 568#       发表于 2020-7-6 12:36
+
+
+
+
+希望不会禁到ddd那天……
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 569#       发表于 2020-7-6 12:37
+
+
+
+
+她有一半盘在冲国，自己跟阿b都会有考虑的吧。话说双推流的话会被禁吗？
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 570#       发表于 2020-7-6 13:08
+
+
+
+
+淦哦，从昨天早上鸽到今天中午了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 571#       发表于 2020-7-6 13:58
+
+
+
+
+3D棚得提前订的吧，要说就趁早说呗
+
+
+
+
+
+
+
+-----
+
+####  かながわけん咩  
+##### 572#       发表于 2020-7-6 14:00
+
+
+
+
+不要私联不要私联<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 573#       发表于 2020-7-6 14:02
+
+
+
+
+3d那天真要刚好撞上禁转，那就搞成双推流呗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 574#       发表于 2020-7-6 14:09
+
+
+
+ 本帖最后由 路人庚 于 2020-7-6 14:13 编辑 
+
+[@age45](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=263843) 572L
+
+
+syl，
+
+
+月底什么样到时候再说吧，说不定碰不上呢，不提前预告的原因可能也是考虑到疫情吧
+
+
+
+
+
+
+
+                              
