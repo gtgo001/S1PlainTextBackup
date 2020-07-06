@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-06 22:14** 
+> ## **本文件最后更新于2020-07-07 00:14** 
 
 
 
@@ -12397,10 +12397,12 @@ qs 还是地表最自由的风格比较适合她
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 5战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 呓亘| + 1|反馈，其实我更喜欢那篇和bfm的扶她文.|
+| pabier| + 1|求指路|
 | noaki| + 1|反馈|
 | GRMeA104| + 1|反馈|
 | 路人庚| + 1|反馈|
@@ -12540,4 +12542,168 @@ qs 还是地表最自由的风格比较适合她
 
 
 
-                          
+
+
+-----
+
+####  兔耳僵尸  
+##### 717#       发表于 2020-7-6 22:15
+
+
+
+
+看到别人用推特的录音功能了，等你咩玩
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 718#       发表于 2020-7-6 22:15
+
+
+
+
+短篇是啥（
+
+发情楼在哪
+
+有情强来指个路吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 719#       发表于 2020-7-6 22:16
+
+
+
+
+同问
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| pabier| + 1|找到了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 720#       发表于 2020-7-6 22:20
+
+
+
+[https://bbs.nga.cn/read.php?tid=17813638&amp;page=171](https://bbs.nga.cn/read.php?tid=17813638&amp;page=171)
+
+3408楼
+
+syl 怪不得发情楼这说法这么耳熟
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 呓亘| + 1|多谢！！！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 721#       发表于 2020-7-6 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48096172&amp;ptid=1945537" target="_blank">兔耳僵尸 发表于 2020-7-6 22:15</a>
+
+看到别人用推特的录音功能了，等你咩玩
+
+
+—— 来自 vivo V1824A, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+刚出我就在等了 可是这个功能是灰度测试 她推特还没这个功能 有一推说过了 并且神乐组三人都没有更新到这个功能<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 722#       发表于 2020-7-6 23:27
+
+
+
+
+今日无麻<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 723#       发表于 2020-7-6 23:45
+
+
+
+
+小麻这个点已经睡了,明早还要起来继续出门<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                         
