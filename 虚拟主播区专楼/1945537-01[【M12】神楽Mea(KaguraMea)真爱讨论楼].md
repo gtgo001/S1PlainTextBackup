@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-06 18:14** 
+> ## **本文件最后更新于2020-07-06 20:13** 
 
 
 
@@ -10891,4 +10891,463 @@ smjb翻译草
 
 
 
-                             
+
+
+-----
+
+####  シオン诗音  
+##### 621#       发表于 2020-7-6 18:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我也以为会有个工商直播的
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 622#       发表于 2020-7-6 18:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">越想那个半夜的哈！就越想打她屁股
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 623#       发表于 2020-7-6 18:30
+
+
+
+
+我记得她之前说过会搞....问题是这联动都快结束了……
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 624#       发表于 2020-7-6 18:34
+
+
+
+
+播方舟指令也就那天那么一提，感觉就是她自己在纠结要不要播一次，说明厂商根本没要求她播工商呗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 625#       发表于 2020-7-6 18:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48093199&amp;ptid=1945537" target="_blank">Cla0221 发表于 2020-7-6 18:30</a>
+
+越想那个半夜的哈！就越想打她屁股</blockquote>
+真的只会打屁股吗？( ﾟ∀ ﾟ)ﾊｯ！
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 626#       发表于 2020-7-6 18:37
+
+
+
+
+发推了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 627#       发表于 2020-7-6 18:43
+
+
+
+
+变成了嘤嘤怪
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 628#       发表于 2020-7-6 18:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48093279&amp;ptid=1945537" target="_blank">路人庚 发表于 2020-7-6 18:36</a>
+
+真的只会打屁股吗？( ﾟ∀ ﾟ)ﾊｯ！</blockquote>
+啊这……不想在论坛发情了而已）<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 629#       发表于 2020-7-6 18:45
+
+
+
+
+毕竟发情是会带起一片人发情的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 630#       发表于 2020-7-6 18:45
+
+
+
+
+总感觉这人出趟门就跟我去健身房一样，高强度出门会变成魔鬼筋肉麻吗
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 631#       发表于 2020-7-6 18:58
+
+
+
+
+大概就是走远路了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+所以小麻这周还播吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 632#       发表于 2020-7-6 19:02
+
+
+
+
+大抵是摸了，下周出去频率还要加倍，继续摸，该做好像去年一月就播了十次左右的准备了，希望她在努力准备3d时的💃
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 633#       发表于 2020-7-6 19:02
+
+
+
+
+之前她说她胖了，再锻炼锻炼就有肌肉了。
+
+魔鬼筋肉麻可能性存微<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 634#       发表于 2020-7-6 19:05
+
+
+
+
+怎么肌肉mea也有受众的吗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 635#       发表于 2020-7-6 19:07
+
+
+
+
+六块腹肌无论是在男人身上还是女人身上都是有受众的
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 636#       发表于 2020-7-6 19:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我可以的
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 637#       发表于 2020-7-6 19:23
+
+
+
+
+有预定了hxd，12号ptsd麻将
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 638#       发表于 2020-7-6 19:26
+
+
+
+
+草 PTSD麻将我第一反应居然是Meaqua麻将
+
+不是她变了，是我脑子变了.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 639#       发表于 2020-7-6 19:31
+
+
+
+
+逐渐进入老年人生活节奏
+
+
+没事搓麻
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 640#       发表于 2020-7-6 19:31
+
+
+
+
+往好处想，有兔鞠
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 641#       发表于 2020-7-6 19:33
+
+
+
+
+兔鞠可以，舞元不行。
+讲道理之前那段时间兔鞠才是无处不在，油管和tc台都经常出现，但并不会让我感到不适，甚至想到这是男人，也不会有任何敌意的想法。
+但舞元不行，我看到他立绘有有不适感，比误点赞了贴贴人的掺私货fanart还感到不适<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 642#       发表于 2020-7-6 19:36
+
+
+
+
+绝望了，对这个看脸的世界绝望了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 643#       发表于 2020-7-6 19:39
+
+
+
+
+既然又要打麻将了那么也提一下之前那个通宵tc里mea提到的
+
+
+当时直播快结束了，因为有几个人在评论问舞元的kiss音声的事，你咩姐就回复说，虽然之前看到说虹社运营已经同意舞元发音声了，但舞元根本就没有发任何东西，你咩姐就准备在下次麻将联动里再说一下这个事
+
+
+当时我就在想这联动要等到啥时候，没想到这么快就来了，大伙做好准备8<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 644#       发表于 2020-7-6 19:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 645#       发表于 2020-7-6 19:46
+
+
+
+
+呜呜呜，我相信mea已经忘了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 646#       发表于 2020-7-6 19:58
+
+
+
+
+上次联动的时候就貌似订了这组合麻将半月一次，kiss音她忘了其他人也会提醒的吧
+但是，小妹妹，记得自己开台好吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 647#       发表于 2020-7-6 20:01
+
+
+
+
+忘应该是不会忘的，估计还是这次麻将的核心主题，预计是兔姨或者某个乐子人评论提一句带进来，要不就是聊到相关话题咩自己开团，也有可能直播标题是这个“赌上舞元kiss音声的麻将带赛”，过程参考line那次，总之结局应该是兔鞠兔姨助攻阿咩险胜舞元打哈哈，然后也像line一样不了了之，私下交流解决，某天被评论追着问报告一下进展放下一次麻将的卫星。做好准备就完事了铁汁们，相关内容又得污染这月本就很少开的直播间一段时间了
+
+
+
+
+
+                            
