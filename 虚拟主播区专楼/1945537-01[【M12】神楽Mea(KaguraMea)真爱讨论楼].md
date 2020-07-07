@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-07 20:14** 
+> ## **本文件最后更新于2020-07-07 22:15** 
 
 
 
@@ -19231,4 +19231,358 @@ bls最后一小时背刺上来的<img src="https://static.saraba1st.com/image/sm
 
 
 
-              
+
+
+-----
+
+####  暗心舞踏  
+##### 1075#       发表于 2020-7-7 20:15
+
+
+
+
+背刺开台嘲讽一气呵成的国v，不了解就不用了解了
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 1076#       发表于 2020-7-7 20:21
+
+
+
+ 本帖最后由 yuanhang99 于 2020-7-7 20:22 编辑 
+
+你咩的演唱会能来捧场的也只有alice的小兔子了吧？crew的消费能力摆在那里，更何况是那个女人的live. 这么看500-1000的票价还真不一定能坐满。话说线上票真要对标Holo估计会炎上。不如和鹿乃一样99算了。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 1077#       发表于 2020-7-7 20:23
+
+
+
+
+看阿b的操作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这不是祈忧，可能真的要完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1078#       发表于 2020-7-7 20:28
+
+
+
+
+怎么说得好像各家都只有毒唯粉一样，在群里团建多了都搞不清正常观众群体的成分了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1079#       发表于 2020-7-7 20:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别杞忧了，既然打过钱就算免票，订一万人民币也烧不起来的
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 1080#       发表于 2020-7-7 20:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48107918&amp;ptid=1945537" target="_blank">A2014720 发表于 2020-7-7 20:23</a>
+
+看阿b的操作了
+
+
+这不是祈忧，可能真的要完</blockquote>
+反正你咩也就这一次了。最初最后最大规模的正式live，是好是坏都是它了。毕竟已经不可能在拿下第2期BLS.
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 1081#       发表于 2020-7-7 20:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48107970&amp;ptid=1945537" target="_blank">暗心舞踏 发表于 2020-7-7 20:28</a>
+
+怎么说得好像各家都只有毒唯粉一样，在群里团建多了都搞不清正常观众群体的成分了吧 ...</blockquote>
+mea,aqua,alice这三个人毒唯粉成分不高吗？至少在中文圈内也算数一数二了吧？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1082#       发表于 2020-7-7 20:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48108040&amp;ptid=1945537" target="_blank">yuanhang99 发表于 2020-7-7 20:34</a>
+
+mea,aqua,alice这三个人毒唯粉成分不高吗？至少在中文圈内也算数一数二了吧？ ...</blockquote>
+你不要光看s1啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1083#       发表于 2020-7-7 20:37
+
+
+
+ 本帖最后由 Sanguine 于 2020-7-7 20:41 编辑 
+
+所以现在大部分crew和天狗关系如何<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+如果不是那种提到就顺劈的还行吧
+syl，听说bls当时还有天狗去爱丽丝直播间打钱因为想看meaqualice？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 1084#       发表于 2020-7-7 20:38
+
+
+
+
+小虾鱼除了某次露脸发现长得很一般外也没啥不堪吧 没你说的那么吓人 怎么就成v圈不可接触者了
+她当时不是辩称粉丝群内提前就告知了最后雪风要冲榜 和要被刷下去的七柠(？)也认识，提前通知过了 第二天事后也和七柠又聊过这事 当然全是自述 ，对方并没谈起过， 但也不至于全是扯淡吧。。。
+只是团队应激公关不行，不过脑子直播和观众刚正面，白瞎了真金白银买的流量;mmr也没经历过v圈打比赛，一下被挑起来种了梁木
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1085#       发表于 2020-7-7 20:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48108040&amp;ptid=1945537" target="_blank">yuanhang99 发表于 2020-7-7 20:34</a>
+mea,aqua,alice这三个人毒唯粉成分不高吗？至少在中文圈内也算数一数二了吧？ ...</blockquote>
+真是3000席的话当然要争取人数最众多的一般v圈观众捧场，bls当时mea的打钱人数可是第一的，虹圈可能看不起但在一般观众那里路人缘又不差
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 1086#       发表于 2020-7-7 20:40
+
+
+
+
+各玩各的呗，能有多好或者多差……
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1087#       发表于 2020-7-7 20:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48108108&amp;ptid=1945537" target="_blank">离心 发表于 2020-7-7 20:40</a>
+
+各玩各的呗，能有多好或者多差……</blockquote>
+倒不如说大部分都这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">各看各的但一块推的也不少，mealice联动我记得人气还挺高来着
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 1088#       发表于 2020-7-7 20:43
+
+
+
+
+来个天邪鬼ddd
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1089#       发表于 2020-7-7 20:44
+
+
+
+
+meaqualice这个是爱丽丝当时说想看的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1090#       发表于 2020-7-7 20:47
+
+
+
+
+那我奶一个到时候咩夸合唱一首，咩爱丽丝合唱一首，哉三人合唱一首如何<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1091#       发表于 2020-7-7 20:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48108164&amp;ptid=1945537" target="_blank">暗心舞踏 发表于 2020-7-7 20:44</a>
+meaqualice这个是爱丽丝当时说想看的</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1092#       发表于 2020-7-7 20:47
+
+
+
+
+话说我去b专栏吃小虾鱼瓜的时候看到绅宝被开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1093#       发表于 2020-7-7 21:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48106754&amp;ptid=1945537" target="_blank">weiweiEX 发表于 2020-7-7 18:37</a>
+
+我就在想阿b的经纪人会不会帮她提一个“参考票价”
+
+另外有人知道苔苔生日会的票价是多少吗，总感觉m ...</blockquote>
+海苔男的是364/810/1919<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 1094#       发表于 2020-7-7 21:56
+
+
+
+ 本帖最后由 A2014720 于 2020-7-7 22:00 编辑 
+
+呕吼<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+木遁·树海降诞<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+先不贷款了，看着还不错，还是等直播详细说明吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+             
