@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-07 14:16** 
+> ## **本文件最后更新于2020-07-07 16:13** 
 
 
 
@@ -16030,4 +16030,191 @@ syl  前面看到了前字幕组组员和现同好会会员的发言，总觉�
 
 
 
-                    
+
+
+-----
+
+####  weiweiEX  
+##### 900#       发表于 2020-7-7 14:16
+
+
+
+
+等下，个人live又是啥事说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 901#       发表于 2020-7-7 14:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">少看粉丝，多看直播
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 902#       发表于 2020-7-7 14:24
+
+
+
+
+然而并没有播<img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 903#       发表于 2020-7-7 14:27
+
+
+
+
+就是之前聊bls的时候嘴滑冒了一句“我自己的live……”然后就反应过来赶紧把肉猪给摁住了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 904#       发表于 2020-7-7 14:45
+
+
+
+
+啥，第二次个人live已经提上日程了吗？第一次时候我还是学生，现在的话我可能有那么一点机会去了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 905#       发表于 2020-7-7 15:17
+
+
+
+
+咩和年龄相近的女v关系好的就是鼻血组神乐组和星川gbr，然而前两个月跑联动多，联动企划又不是小年轻能搞出来的，自然玩的少
+什么时候能再和星川约一波游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">想看她和年轻妹子一起联动
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 906#       发表于 2020-7-7 15:36
+
+
+
+
+鼻血组
+
+
+年龄相近
+
+
+你认真的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 907#       发表于 2020-7-7 15:39
+
+
+
+[https://b23.tv/84t8KF](https://b23.tv/84t8KF)
+
+草
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 908#       发表于 2020-7-7 15:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还以为突击了扯这么多
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 909#       发表于 2020-7-7 15:55
+
+
+
+
+如果是突击就好了
+
+
+
+
+
+                   

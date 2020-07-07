@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-06 10:21** 
+> ## **本文件最后更新于2020-07-07 16:15** 
 
 
 
@@ -6028,10 +6028,12 @@ cnm的我不知道2d手绘更牛逼吗？我不知道jzgg和A1做偶像更有经
 
 
 
- 参与人数 10战斗力 +12
+ 参与人数 12战斗力 +15
 
 |昵称|战斗力|理由|
 |----|---|---|
+| BQlin| + 2||
+| z6226618| + 1|好评加鹅|
 | 宋西湖| + 2|表述形象|
 | a1370303| + 1|欢乐多|
 | dqc| + 1|思路广|
@@ -7366,4 +7368,517 @@ UE在游戏里也很重要啊<img src="https://static.saraba1st.com/image/smiley
 
 
 
-                                    
+
+
+-----
+
+####  佐仓绫音  
+##### 397#       发表于 2020-7-6 10:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">  意思是不玩游戏不配讨论？ 哪来的手游斯林呀  
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 超法拉|-1|欢乐多|
+| 萩原组土狼p|-1||
+| 皮卡丘跑快快|-1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 398#       发表于 2020-7-6 11:33
+
+
+
+
+呦呵，才看着
+
+
+
+
+
+
+
+-----
+
+####  IPoke  
+##### 399#       发表于 2020-7-6 11:59
+
+
+
+ 本帖最后由 IPoke 于 2020-7-6 12:02 编辑 
+
+百百P对A1的感情不只是本家动画的关系吧，以前A1的卡面也是空调的一大亮点，好多人说是被A1的卡面带入坑的都不过分，说起百百的人设脑子里出现的大概率都是A1绘，最后不是A1做确实会不适应。
+空调的时候有发病的运营加上A1的卡面，明明是个落伍jpg对撞游戏现在回忆起来也会很欢乐
+不过实际看下来效果还行啦，除了静静的脸不是很好看
+
+— from OnePlus GM1910, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  zqpm1235  
+##### 400#       发表于 2020-7-6 14:18
+
+
+
+
+草，万南和a1在百万的合作不早就随着空调关服分手了吗，再怎么招魂也是不可能的事，别人a1自己的ip都做不过来哪有空给你万南打工，现实点不如指望白组外包部分被有爱的staff认领
+
+
+
+
+
+
+
+-----
+
+####  蓝泽渚  
+##### 401#       发表于 2020-7-6 16:46
+
+
+
+
+有人说上bnp bnp作画好但是偶活的3d live不太行 bnp的3d班更擅长做机战
+
+
+
+
+
+
+
+-----
+
+####  六花自我中  
+##### 402#       发表于 2020-7-6 17:06
+
+
+
+
+为什么不是jzgg
+
+
+
+
+
+
+
+-----
+
+####  zhangruiy  
+##### 403#       发表于 2020-7-6 17:15
+
+
+
+
+这次还会是赤羽根P吗
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 404#       发表于 2020-7-6 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48092211&amp;ptid=1945828" target="_blank">zhangruiy 发表于 2020-07-06 17:15:22</a>
+这次还会是赤羽根P吗</blockquote>我感觉不会沿用以前的世界观
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  我是地雷我自豪  
+##### 405#       发表于 2020-7-6 19:42
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/06/194147njmdfsjspi1bbjll.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200706194137.jpg</strong> (144 KB, 下载次数: 1)
+
+下载附件
+
+2020-7-6 19:41 上传
+
+
+
+
+
+
+啊这？？？？？
+
+
+
+
+
+
+
+-----
+
+####  蓝泽渚  
+##### 406#       发表于 2020-7-6 19:47
+
+
+
+<blockquote>我是地雷我自豪 发表于 2020-7-6 19:42
+啊这？？？？？</blockquote>
+加藤阳一上一个手游改结局把女主射到宇宙和大boss同归于尽了（
+
+
+
+
+
+
+
+-----
+
+####  电动犀牛  
+##### 407#       发表于 2020-7-6 20:02
+
+
+
+
+推上回复整体还是比较温和的
+
+
+
+
+
+
+
+-----
+
+####  abc738833  
+##### 408#       发表于 2020-7-6 20:13
+
+
+
+
+等新的PV把，初始PV我感觉渲染方面偷懒了
+
+
+
+
+
+
+
+-----
+
+####  Dreki  
+##### 409#       发表于 2020-7-6 20:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48094044&amp;ptid=1945828" target="_blank">我是地雷我自豪 发表于 2020-7-6 19:42</a>
+
+啊这？？？？？</blockquote>
+这届阿宅什么情况，我觉得能把1st kraz那段还原出来还挺好的
+
+
+
+
+
+
+
+-----
+
+####  koodooliz  
+##### 410#       发表于 2020-7-6 20:51
+
+
+
+
+估计是不喜欢小偶像扮黑脸了。不论是剧场版的志保还是cg的mio，争议都不小。
+
+
+
+
+
+
+
+-----
+
+####  萩原组土狼p  
+##### 411#       发表于 2020-7-6 20:56
+
+
+
+
+自己推得偶像当坏人肯定都不高兴，大家开开心心的多好
+
+当然如果有星岚那个3人黑化搞事小剧场我肯定五肢欢迎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 412#       发表于 2020-7-6 21:14
+
+
+
+
+了解一下 这几年爱活系列的骚操作 有这方面的顾虑很正常
+毕竟加藤和拍出兽娘动物园2“神作”的木村隆一合作过 被它有所影响也正常<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  percy1234  
+##### 413#       发表于 2020-7-6 22:14
+
+
+
+
+怎么还讨论到有没有爱上面了，中割打工仔有爱，3d打工仔没爱？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 普罗茶|-1|中割又不是太大影响|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  zhwpjy  
+##### 414#       发表于 2020-7-6 23:38
+
+
+
+
+支持 可爱小偶像动起来就行 别搞啥幺蛾子
+
+
+
+
+
+
+
+-----
+
+####  黑兽  
+##### 415#       发表于 2020-7-7 01:03
+
+
+
+
+现在3d进步明显，不用3d是跟自己过不去。我就奇怪游戏玩家看3d live十几年了还没习惯吗
+
+最大的风险点显然是剧情
+
+—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  紅蓮の槍  
+##### 416#       发表于 2020-7-7 10:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">现在这建模和哪个风格的百万都差很远，静静大饼脸 头发还油的发光
+
+ 宁愿看mltd的建模直接动 然后多换几套演出服做些live mv
+
+
+
+
+
+
+
+-----
+
+####  THY_HABITΑΤ  
+##### 417#       发表于 2020-7-7 14:24
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/07/142409m4543e641gdd4d41.jpg" referrerpolicy="no-referrer">
+
+
+<strong>d2.jpg</strong> (422.92 KB, 下载次数: 1)
+
+下载附件
+
+2020-7-7 14:24 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  screeper  
+##### 418#       发表于 2020-7-7 14:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48103390&amp;ptid=1945828" target="_blank">THY_HABITΑΤ 发表于 2020-7-7 14:24</a></blockquote>
+脸型修正之后看上去好多了，不完全正确的透视才是动画内味儿
+
+
+
+
+
+
+
+-----
+
+####  金色先锋  
+##### 419#       发表于 2020-7-7 14:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48094044&amp;ptid=1945828" target="_blank">我是地雷我自豪 发表于 2020-7-6 19:42</a>
+
+啊这？？？？？</blockquote>
+然而静香的背景设定，让加藤阳一不这么干也是难啊
+
+除非学11版的雪步那样把家庭背景彻底河蟹掉
+
+
+
+
+
+
+
+-----
+
+####  金色先锋  
+##### 420#       发表于 2020-7-7 14:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48094044&amp;ptid=1945828" target="_blank">我是地雷我自豪 发表于 2020-7-6 19:42</a>
+
+啊这？？？？？</blockquote>
+我是宁可看偶活第四季那样的跪舔前辈+第三季前中期的喝茶番模式
+
+也不想看再来摔跤场景或是偶活星第二季那种展开了
+
+
+
+
+
+
+
+-----
+
+####  紫苑寺友子MKII  
+##### 421#       发表于 2020-7-7 15:13
+
+
+
+ 本帖最后由 紫苑寺友子MKII 于 2020-7-7 15:29 编辑 
+
+https://b23.tv/BG2D1T官方放的源，万代每次只给720p比较迷
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  斯卡蕾特  
+##### 422#       发表于 2020-7-7 15:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48103390&amp;ptid=1945828" target="_blank">THY_HABITΑΤ 发表于 2020-7-7 14:24</a></blockquote>
+艹，终于知道为什么看乌冬浑身不对劲又说不出哪里不对了，原来是标志性刘海没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                   
