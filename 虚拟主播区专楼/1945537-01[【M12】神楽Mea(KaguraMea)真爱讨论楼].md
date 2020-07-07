@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-07 00:14** 
+> ## **本文件最后更新于2020-07-07 10:13** 
 
 
 
@@ -12706,4 +12706,1166 @@ syl 怪不得发情楼这说法这么耳熟
 
 
 
-                         
+
+
+-----
+
+####  proxima  
+##### 724#       发表于 2020-7-7 01:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48094962&amp;ptid=1945537" target="_blank">呓亘 发表于 2020-7-6 20:42</a>
+
+你咩姐当时好歹深夜TC解释了一波（联动只是工作）并且联动后会发推讨好gachi恋，比小肥妹还是高出几个level ...</blockquote>
+其实傻希也经常讨好噶吃的
+
+只不过傻希有的地方真的搞不懂，可能是真傻。
+
+mea还是很明白的，不过有的粉丝可能明白了也装不明白骗自己<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 725#       发表于 2020-7-7 03:05
+
+
+
+
+明白也不一定是好事,嘴硬心软,遇到事吃亏的还是她
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 726#       发表于 2020-7-7 05:23
+
+
+
+
+船粽現在都是上位勢了 哪輪得到咩來連動<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+要連動也只能靠苔牽線了
+
+你看holo哪個上位後不靠苔還有跟咩連動的
+
+配個阿希就算很給面子了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 727#       发表于 2020-7-7 06:30
+
+
+
+ 本帖最后由 単推し人 于 2020-7-7 06:32 编辑 
+
+纯粹以个人私心角度来云p一下的话，还是希望她别搞什么cp，男的女的都别搞，也别整太多联动了，要是从年初开始就像爱丽丝那种圈地自萌稳扎稳打的来，以bls那时候观众展现的应援力来看，只要把这批粉丝稳住了，养一波独角兽，她又是个人势，可能数字上的粉丝数没那么好看，但能拿到手的钱不说多了怎么也是业界前五吧。
+
+当然她也不会这么做，幻想一波
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 728#       发表于 2020-7-7 06:31
+
+
+
+
+现在这样404粉丝数倒是涨的快，每次sc看来看去还都是老熟人，哎，国内噶吃也接连爆炸，收入也在降，评论区还新进了一群发散乐子人<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+建议快进到和我结婚隐退<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 729#       发表于 2020-7-7 06:33
+
+
+
+
+你麻日常剩半年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lll447  
+##### 730#       发表于 2020-7-7 06:41
+
+
+
+
+怎么说，一开始每个人希望她发展的方向都不太一样吧。有的人就比较希望她能够在赚到钱的基础上混的开一点，而不是纯守一亩三分地。不过这么久下来估计这些人都被她耗死了吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 731#       发表于 2020-7-7 06:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48096317&amp;ptid=1945537" target="_blank">ashero 发表于 2020-7-6 22:28</a>
+刚出我就在等了 可是这个功能是灰度测试 她推特还没这个功能 有一推说过了 并且神乐组三人都没有更新到这 ...</blockquote>
+随机还是要申请啊？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 732#       发表于 2020-7-7 07:15
+
+
+
+
+越来越凉是必然的，快进到神乐咩隐退麻酱下海<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 733#       发表于 2020-7-7 08:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">爱丽丝那是吃不到任何资源，也很难找到人联动这一现状下的无奈之举吧。稳固经营了半天，数字还是很难看啊。
+
+人总有D累退坑的时候的，所以不涨粉=掉粉。就404那个诡异的推荐算法，涨粉主要还是得靠联动。所以联动还是很有必要的吧。
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 734#       发表于 2020-7-7 08:12
+
+
+
+
+这女人总是把握不好和男v联动的度，或者只会三板斧啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+只会表演自己是痴女那一套，然后整点黄段子，装屑装妻子整点迫害男v的桥段<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+舞元接不上，然后苔姨拱火，观感很差。上次跟那个普法那位，结果代沟太大而且人家巨能聊，三板斧打不出去，也就是这边整了“虚拟张三”的名号显得没那么尬，404那边反应不清楚。
+鹦鹉哥和兔鞠这种八美肉还好，鹦鹉哥有中之人视频让我觉得很放心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">兔鞠就表现的很可爱和女性化，也不会造成观感太差。
+总之，就算不是gachi，但也不会愿意看自己推去当个痴女缠别的男人，试图卿卿我我喊老公，聊下三路，交换LINE，甚至互发音声这种事情吧，绿帽爱好者吗？
+syl，我认为相当多的问题是苔姨拐歪了阿咩，苔姨喜欢舞台上是表演，观众只要看就好了这种想法，请不要拐带其他人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 735#       发表于 2020-7-7 08:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48098469&amp;ptid=1945537" target="_blank">zhicai618 发表于 2020-7-7 06:44</a>
+
+随机还是要申请啊？</blockquote>
+随机的 不是人人都有 等什么时候完全更新就可以等到了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 736#       发表于 2020-7-7 08:21
+
+
+
+
+凉了凉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 737#       发表于 2020-7-7 08:22
+
+
+
+ 本帖最后由 単推し人 于 2020-7-7 08:26 编辑 
+
+遗憾的是继续这样下去的话自爆侠层出不穷几乎是必然的，现在都能看出点苗头了，又不能橄榄苔姨，苔姨也不会变，也只会不断吹耳旁风外带加上舆论引导，乐子人持续增生，就看阿咩能不能收住吧，要不以后也就只会是时不时有人爆炸和她互相影响心态，然后收入持续走低快进到和我结婚隐退了（悲观主义者）<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 738#       发表于 2020-7-7 08:22
+
+
+
+ 本帖最后由 A2014720 于 2020-7-7 08:25 编辑 
+
+sc404上月是涨的，b是掉了点（b限太少）
+除去生日这个buff不知道还行不行，但总sc说掉也没掉多少
+还是等3d吧<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+想要新观众又讨厌乐子人，太难了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，希望咩姐能脑控转化一部分吧
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 739#       发表于 2020-7-7 08:27
+
+
+
+
+难道现在拿到手的钱不是业界前五？<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+是我yagoo抽成不够高了还是sio最强个人势吹的太飘了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 740#       发表于 2020-7-7 08:30
+
+
+
+
+不过确实我也没仔细研究过最近收入数据没啥发言权，只是看周年回打钱的还是老熟人些有感而发罢了
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 741#       发表于 2020-7-7 08:30
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 742#       发表于 2020-7-7 08:32
+
+
+
+
+yysy现在连V吧都不怎么开mea了，刚进去发现跟mea有关的帖子就一个，还是例行公事的“进V吧看见mea黑料……”
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 743#       发表于 2020-7-7 08:32
+
+
+
+
+2周年涨的情况下还不如B这边掉后的总额，更别提涨的那部分有多少是B这边翻墙过去打的，能快进到咩姐常来B限么<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 744#       发表于 2020-7-7 08:40
+
+
+
+
+mea精力就那么多，404都不播还指望着来b播吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不可能的啊，强行来b播估计你楼又是什么虚无混时间安排上了
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 745#       发表于 2020-7-7 08:43
+
+
+
+
+我是不知道她联动sc情况咋样啦，我看的单人杂谈特别是歌回，最近基本上我都刻意留意过sc的情况，没有什么给我有印象的生id，哎，希望是我的错觉吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 746#       发表于 2020-7-7 08:47
+
+
+
+ 本帖最后由 単推し人 于 2020-7-7 08:58 编辑 
+
+新人几个月了也不打钱又发散污染环境，进一步刺激噶吃神经，继续有人自爆，和阿咩互相影响心态，继而影响直播状态，继而车轱辘继续，继而更多人爆炸，无限循环，呜，不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+差点忘了，外面还有反贼苔姨到处煽风点火鼓动局势，挟天子以令诸侯，在圣上旁边吹枕边风，内有乐子人污染环境，挑动人民内部矛盾，内忧外患，此诚乃危机存亡之秋也<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+该讨伐奸臣，匡扶汉室，平乱中兴力<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 747#       发表于 2020-7-7 08:48
+
+
+
+
+先快进到能在404正常直播吧，在自己频道是不是只播了一次<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+今天不播就退坑回踩<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 748#       发表于 2020-7-7 08:51
+
+
+
+ 本帖最后由 weiweiEX 于 2020-7-7 08:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48098967&amp;ptid=1945537" target="_blank">単推し人 发表于 2020-7-7 08:47</a>
+
+新人几个月了也不打钱又发散污染环境，进一步刺激噶吃神经，继续有人自爆，和阿咩互相影响心态，继而影响直 ...</blockquote>
+别循环了，下回和犬山联动出熟肉你少冲点评论区就对你mea姐挺好的了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 749#       发表于 2020-7-7 08:54
+
+
+
+
+过段时间看来会早上直播了，希望不要是tc，404留点档吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 750#       发表于 2020-7-7 08:56
+
+
+
+
+我还是挺喜欢晨间直播的。。我5点就起，有个晨间还不影响上班，对我来说挺舒服
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 751#       发表于 2020-7-7 08:57
+
+
+
+
+晨练直播的精髓是没看到的人（
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 752#       发表于 2020-7-7 08:58
+
+
+
+
+所以说这就是问题所在了:以前还说tc是油管或者b限后作为奖励自己才播的，现在tc播的多了，精力就那么点，自然就只能别的地方播的少了，上次那张分布图就能看出来了。而因为不给转播，给b这边不翻墙的观众直观的感觉就是直播频率下降，所以也别奇怪收入下降了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 753#       发表于 2020-7-7 09:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099049&amp;ptid=1945537" target="_blank">kolu33 发表于 2020-7-7 08:58</a>
+所以说这就是问题所在了:以前还说tc是油管或者b限后作为奖励自己才播的，现在tc播的多了，精力就那么点，自 ...</blockquote>
+“虚无”
+有几次404的氛围和tc一样，然后被批虚无，我寻思不转播挺好的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 754#       发表于 2020-7-7 09:02
+
+
+
+
+我觉得tc只是她单纯的不想正经播，但又想播<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 755#       发表于 2020-7-7 09:03
+
+
+
+
+救世啊，tc我都不当她播的，全当她在玩，就跟打游戏娱乐一样<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 756#       发表于 2020-7-7 09:06
+
+
+
+
+所以想那么多还不如盼她播不播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 757#       发表于 2020-7-7 09:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099000&amp;ptid=1945537" target="_blank">weiweiEX 发表于 2020-7-7 08:51</a>
+
+别循环了，下回和犬山联动出熟肉你少冲点评论区就对你mea姐挺好的了 ...</blockquote>
+那天是怒火攻心有点失了智，当时咩好久没播实在忍不住下定决心看了个联动，然后等了一个多小时等来一个ptsd加量套餐，然后又看到官组光速烤了个贴贴出来下面一群人又在那高呼大哥，一套连环拳，差点一口气没给我整过去，就有点陷入失智状态了，以后应该不会了，现在一般我只要不看联动心态还是很好的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|希望大家都能找到适合自己的位置.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 758#       发表于 2020-7-7 09:07
+
+
+
+
+那么就是tc不算直播？那减去tc时长，咩姐直播时长血崩啊，而直播就是主播的根本，一转回来，收入下降不奇怪
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 759#       发表于 2020-7-7 09:11
+
+
+
+
+tc可以服务嘎吃啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+那种只要听到声音就能满足的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 760#       发表于 2020-7-7 09:11
+
+
+
+
+mea本来播的就不多，毕竟不是打游戏的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要整出路估计还是跟隔壁一样整联动路线
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 761#       发表于 2020-7-7 09:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099134&amp;ptid=1945537" target="_blank">kolu33 发表于 2020-7-7 09:07</a>
+那么就是tc不算直播？那减去tc时长，咩姐直播时长血崩啊，而直播就是主播的根本，一转回来，收入下降不奇怪 ...</blockquote>
+去掉啥。。mea一天48小时么。。。tc也发推的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 762#       发表于 2020-7-7 09:18
+
+
+
+
+没精力准备话题所以跑tc聊聊天服务一下自己的粉丝顺便解解压还是可以理解的
+
+就是上个月404留档确实有点少，虽然没留的档里有很多是同接不错的歌回
+
+还是等她忙完吧
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 763#       发表于 2020-7-7 09:18
+
+
+
+
+凉了就凉了呗，咩姐3d也有了，接下来用到钱的地方又不多，随便播播就行
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 764#       发表于 2020-7-7 09:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099126&amp;ptid=1945537" target="_blank">単推し人 发表于 2020-7-7 09:07</a>
+那天是怒火攻心有点失了智，当时咩好久没播实在忍不住下定决心看了个联动，然后等了一个多小时等来一个pts ...</blockquote>
+我的建议是有啥烦心事可以在本坛的其他楼发泄出来，要比直接冲评论区好的多，一个老梁木人的经验之谈，或者跑贴吧骂一顿也不错。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 765#       发表于 2020-7-7 09:21
+
+
+
+
+快进到3d。这个3d我总觉得很像是2d。。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 766#       发表于 2020-7-7 09:22
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-7-7 09:28 编辑 
+
+暴论: 管人大多整不出什么像样的内容， 如果只看在内容的份上而抛开因为感情(如老父亲感， gachi情绪等等)而产生的滤镜的话管人基本都挺无聊的
+
+你咩如果当时要搞5mea真的是如她所说， 是打算制造有意思的内容的话那她估计搞错了什么
+
+很多内容会🔥， 吸引到人不是因为多有趣， 而是迎合了接受某种neta/meme/亚文化体系的观众 - 就是你楼说的那些乐子粉。 某种意义上他们带有他们自己的滤镜， 某些在楼友看来挺无聊的东西他们很热忱， 反过来也一样， 除非他们产生了楼友有的滤镜不然估计也觉得你咩本身没意思。
+
+管人粉基本都活在跟自己戴有同款滤镜的群体的泡泡中。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 767#       发表于 2020-7-7 09:23
+
+
+
+
+这个3d总给我一种以前玩的游戏里3d的感觉，还挺期待的，不知道直播时的画风是什么样子
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 768#       发表于 2020-7-7 09:25
+
+
+
+
+蹦蹦跳跳！
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 769#       发表于 2020-7-7 09:27
+
+
+
+
+希望mea可以摆个色气的姿势<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 770#       发表于 2020-7-7 09:29
+
+
+
+
+不说噶吃，就算是一般观众，真的会有人很愿意给一个一直倒贴别的男人，聊黄段子，追着要交换line，甚至说互发音声的女主播打钱吗，心里不会膈应吗，收入下降除了tc播的多外我想始终还是有这么一方面原因吧，刨除个人私心我也是这么想的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 771#       发表于 2020-7-7 09:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099338&amp;ptid=1945537" target="_blank">単推し人 发表于 2020-7-7 09:29</a>
+不说噶吃，就算是一般观众，真的会有人很愿意给一个一直倒贴别的男人，聊黄段子，追着要交换line，甚至说互 ...</blockquote>
+这就是另一个"泡泡"的故事了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 772#       发表于 2020-7-7 09:30
+
+
+
+
+你咩這個年紀還沒有經濟上的壓力
+
+現在的收入即使少了一半都綽綽有餘
+
+直播自然是自己開心比賺錢重要
+
+哪天她變得功利起來了 你樓才要擔心是不是在養小白臉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 773#       发表于 2020-7-7 09:32
+
+
+
+ 本帖最后由 惑星 于 2020-7-7 09:35 编辑 
+
+可以养我吗，我不想努力了
+
+这不就是经典路线问题吗，直播肯定就只有喜欢的人才会看啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 774#       发表于 2020-7-7 09:32
+
+
+
+
+怎么还车这个的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是入坑时meakou被传教的少了吗，我刚入坑当路人时还挺喜欢看她缠着青猫要结婚来着
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 775#       发表于 2020-7-7 09:40
+
+
+
+ 本帖最后由 単推し人 于 2020-7-7 09:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099369&amp;ptid=1945537" target="_blank">weiweiEX 发表于 2020-7-7 09:32</a>
+
+怎么还车这个的是入坑时meakou被传教的少了吗，我刚入坑当路人时还挺喜欢看她缠着青猫要结婚来着 ...</blockquote>
+这就是每个人不同吧，我是大概18年9月还是10月左右看的她的某个杂谈剪辑（记不清具体哪个了）点的关注，后面慢慢的多看了一些剪辑就逐渐深入了，19年1月份那会儿我刚知道有meakou这回事的时候还被膈应了一下，但那时还没入脑也就没当回事继续做别的了，现在想来如果我早期看的是meakou的话，至少肯定不会给她打钱，后面也不会入脑，当然也可能根本就不会点开她的视频了
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 776#       发表于 2020-7-7 09:44
+
+
+
+
+tc尺度高一点，因为默认不留档，也不用p图准备封面之类的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 777#       发表于 2020-7-7 09:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099439&amp;ptid=1945537" target="_blank">単推し人 发表于 2020-7-7 09:40</a>
+
+这就是每个人不同吧，我是大概18年9月还是10月左右看的她的某个杂谈剪辑（记不清具体哪个了）点的关注，后 ...</blockquote>
+你mea姐从一开始到现在都是有男女cp的要素，卯月他们大部分男人（或者说所有？）都是你mea姐主动找上门的，可能也就整meaqua的时候男女cp的浓度降低过，这也是她说的5mea是她的工作。
+
+你从一个独角兽的角度去杞忧一个从头到尾都没扔下过男人要素的V本身就很奇怪，受不了的话就不打钱看她接下来会怎么玩，再看自己能不能留的下呗
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 778#       发表于 2020-7-7 09:47
+
+
+
+
+说到准备封面，她已经从大书法家到气死设计师朋友再到现在一口气买了600个字体的使用权了，说明她也是想更进一步的嘛
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 779#       发表于 2020-7-7 09:48
+
+
+
+
+说明女人花钱太盲目<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 780#       发表于 2020-7-7 09:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099521&amp;ptid=1945537" target="_blank">kolu33 发表于 2020-7-7 09:47</a>
+
+说到准备封面，她已经从大书法家到气死设计师朋友再到现在一口气买了600个字体的使用权了，说明她也是想更 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还帮小弟做封面了，真想知道她如果还是当年的书法家，会是什么样子
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 781#       发表于 2020-7-7 09:57
+
+
+
+ 本帖最后由 単推し人 于 2020-7-7 10:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099508&amp;ptid=1945537" target="_blank">weiweiEX 发表于 2020-7-7 09:46</a>
+
+你mea姐从一开始到现在都是有男女cp的要素，卯月他们大部分男人（或者说所有？）都是你mea姐主动找上门的 ...</blockquote>
+我还好，只是杞忧，学会不看联动后都很正常，钱也照打，也真的只是在杞忧发散而已。
+
+你说的很对，我也知道，但我刚刚翻了一下官组的投稿，关于meakou其实只有最早的一个翻唱和一个合唱，然后别的都是贴贴和单人内容了，也就是说像我这种，最早的时候是通过阿b由剪辑开始了解的，应该大部分都不是很熟悉或者说适应这种男女cp营业，然后后来19年的时候，粉丝群体膨胀的最快的时候也就是搞贴贴的时候，那个时候也就是你说的男女cp浓度最淡的时候，那个时候入坑的很多也不像你这种熟悉适应了男女cp营业，这也就造成了粉丝群体的一种割裂，而这种割裂也是后面出这么多问题的原因，所以我才在这杞忧嘛，你说一直有男女cp的要素很对，但很多人还是会膈应甚至梁木啊，光就中国这边来说是这样的，日本那边我不了解，反正不怎么打钱就是了。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 782#       发表于 2020-7-7 09:59
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-7-7 10:04 编辑 
+
+重点：
+
+
+不存在真的普世通用的“有趣”，
+
+
+虽然有些“有趣”比其他的“有趣”受接受范围比较广，
+
+
+不过我认为管人大多做不到这种”大众化“的有趣，
+
+
+而只能编织一个自己的独立的滤镜王国。
+
+
+在这个滤镜王国中， 外面一文不值的东西可以高价贩卖...<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+滤镜也没有什么不好的， 
+
+
+价值本来就是主观的。
+
+
+个人认为粉丝经济的核心就是这样的交换 - 顾客被导入滤镜的王国， 本来一文不值的东西在ta看来有了价值...
+
+
+也许对ta来说， 自己枯燥无趣的人生中难以找到这种东西，
+
+
+现在找到了，
+
+
+虽然它的价值不怎么通用，
+
+
+不过价值不通用的东西多的是。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 783#       发表于 2020-7-7 10:01
+
+
+
+
+不会吧，当年龙宫闹海挺火的，她跟哈哥哈弟眼镜仔青猫玩pubg都挺有意思的，真是五元不行<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 784#       发表于 2020-7-7 10:06
+
+
+
+
+当初各种人际关系同时存在的热闹v圈也一去不复返了，现在v和v之间的关系太割裂，怀念过去也没用了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 785#       发表于 2020-7-7 10:08
+
+
+
+ 本帖最后由 単推し人 于 2020-7-7 10:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099686&amp;ptid=1945537" target="_blank">A2014720 发表于 2020-7-7 10:01</a>
+
+不会吧，当年龙宫闹海挺火的，她跟哈哥哈弟眼镜仔青猫玩pubg都挺有意思的，真是五元不行 ...</blockquote>
+你说的那时候我阔能还是mmr，只点了官组的关注，你说的这些官组都没有都不看的，就连看官组也都是偶尔刷新到页面上了有兴趣才会点进去看一下，这些非官组的剪辑我都是后来对她至少比较感兴趣之后才去看的，所以就有一个先入为主的观念吧，导致后来难以接受男女cp这种。
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 786#       发表于 2020-7-7 10:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099663&amp;ptid=1945537" target="_blank">魔法使い2019 发表于 2020-7-7 09:59</a>
+重点：
+
+
+不存在真的普世通用的“有趣”，</blockquote>
+大众化的有趣就算是国内那些顶端主播也做不到，不说主播，就算是b站这种上市公司，也只是通过兴趣推送，把用户分门别类。想要做到大众化的有趣，我的建议是先放弃直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                       
