@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-07 18:14** 
+> ## **本文件最后更新于2020-07-07 20:14** 
 
 
 
@@ -17903,4 +17903,1332 @@ Siva小虾鱼 雪风
 
 
 
-                
+
+
+-----
+
+####  面具13  
+##### 1003#       发表于 2020-7-7 18:16
+
+
+
+
+不用太担心，四个洗脚婢只要能保证一人一首单人曲+一首五人合唱曲，稍微宣传一下，不愁凑不齐3000人的，何况还会有凑热闹的人。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1004#       发表于 2020-7-7 18:19
+
+
+
+
+话说当时的blvlink有多少人参加啊
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 1005#       发表于 2020-7-7 18:21
+
+
+
+ 本帖最后由 LIPP 于 2020-7-7 19:44 编辑 
+
+编辑了 被阿b客服打脸了
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 1006#       发表于 2020-7-7 18:22
+
+
+
+
+啊，想象了一下3000人在底下打call，她在台上演唱的样子，不行了，到时候感觉肯定要落泪了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">得找个角落位置坐着了
+
+
+
+
+
+
+
+-----
+
+####  Kanoya  
+##### 1007#       发表于 2020-7-7 18:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48106310&amp;ptid=1945537" target="_blank">weiweiEX 发表于 2020-7-7 18:03</a>
+抜ける应该就是吧</blockquote>
+「ギリギリ抜ける」？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 兔耳僵尸| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 1008#       发表于 2020-7-7 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48106555&amp;ptid=1945537" target="_blank">LIPP 发表于 2020-7-7 18:21</a>
+BLS打过钱就能免票的这个是fakenews 当时最后一天稳了之后还在直播间骗了一堆吃瓜。阿b的原文是为主 ...</blockquote>
+她自己定的？没见说啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1009#       发表于 2020-7-7 18:27
+
+
+
+
+票价确实是她定的
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 1010#       发表于 2020-7-7 18:28
+
+
+
+
+单人live我还信是她订，这bls又不止是她上场，就算她分的最多也不可能她一个人能决定票价吧
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 1011#       发表于 2020-7-7 18:28
+
+
+
+
+该死的，*捂着肚子，坐在bilibili上海live会场的厕所里。是昨天西瓜吃多了，还是喝冰水喝坏了肚子。
+
+pulipuli~~
+
+啊～～刚才mea的live真棒啊，既有meaqua贴贴糖又有mealice贴贴糖，还有5人大合唱，忍着肚子痛看完了，我也是加把劲骑士！
+
+*回味着，啊。没错，我们天狗至今为止所做的一切都不是徒劳的，只要我们不止步，前方就会有更多的live！
+
+咔（打开厕所门的声音）不小心在这坐了半个小时啊，散场了，该出去了。
+
+哗哗哗（洗手声）嗯？原来有人和我一样还没走吗？
+
+“さっき緊張して、もう少しで漏れそうになりました”熟悉的声音，虽然音调变了，但没错是。。。
+
+“neeeee，***ちゃん，またそんなこと言ってんだよ”这是。。。她们。。。
+
+“***ちゃんと****ちゃんの仲がいいですね”是。。。是*eaq**lice
+
+你走了出去，看到的是三个女孩子可爱的身影
+
+
+
+想做梦就多做点啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">线下一锅端直接三杀或四杀不好吗
+
+日语是机翻的，请见谅<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|有梦总是好的|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 1012#       发表于 2020-7-7 18:30
+
+
+
+
+看了一下隔壁大亏live价格，希望咩别参考那边啊。起码山顶位价格便宜点吧。。
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 1013#       发表于 2020-7-7 18:30
+
+
+
+
+974楼里图片上不是有吗？该场演唱会票价由主播决定
+
+
+就是这里的主播不知道是几个主播，算上其他主播的话，企业势应该怎么定价格呢？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 1014#       发表于 2020-7-7 18:30
+
+
+
+
+这种事她真的能定？<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+这不是一拍脑袋就能想出来的事啊<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+有毒吧，阿b这是推卸责任啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 1015#       发表于 2020-7-7 18:32
+
+
+
+
+不要紧，还有睿叔叔的专业团队<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1016#       发表于 2020-7-7 18:32
+
+
+
+ 本帖最后由 路人庚 于 2020-7-7 18:34 编辑 
+
+再贴一次图（现在看这专业团队莫名会串戏到隔壁某meme
+
+<img src="https://img.saraba1st.com/forum/202007/07/183014d22vq9wwufq4fvfv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (26.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-7-7 18:30 上传
+
+
+
+
+
+
+
+快进到天价票价把你咩姐烧成ashen one当场毕业不得不找我结婚生下两个孩子现在第三胎坐月子
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1017#       发表于 2020-7-7 18:36
+
+
+
+
+快进到100门票会场爆满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 1018#       发表于 2020-7-7 18:36
+
+
+
+
+还是先快进到奇异票价导致咩被炎上，再开始禁转播，国产大物转生失去中国盘，三个月毕业，麻再次出道<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1019#       发表于 2020-7-7 18:37
+
+
+
+
+我就在想阿b的经纪人会不会帮她提一个“参考票价”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外有人知道苔苔生日会的票价是多少吗，总感觉mea也可能去找苔苔问
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1020#       发表于 2020-7-7 18:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48106600&amp;ptid=1945537" target="_blank">Kanoya 发表于 2020-7-7 18:24</a>
+
+「ギリギリ抜ける」？</blockquote>
+应该是这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 1021#       发表于 2020-7-7 18:38
+
+
+
+
+票价这种事直播的时候直接问一下她是不是她自己定呗，如果她不方便说至少还可以在推上打上tag给一点关于票价的意见呗，她肯定都会参考的，毕竟她又不了解中国这边的情况，这也不算云p，正常提意见。再次也有字幕组给她提一些关于中国这边的情况的意见，我个人觉得票价这种事应该不至于担心，肯定不会太贵，要是很贵那种我把我电脑桌吃了好吧
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 1022#       发表于 2020-7-7 18:40
+
+
+
+
+我记得狗妈票价好像是777,577和277来着<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 1023#       发表于 2020-7-7 18:40
+
+
+
+ 本帖最后由 makourisu 于 2020-7-7 18:41 编辑 
+
+演唱会门票定价b站有点故意挖坑的嫌疑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+当时那个线下会的票价是多少来着？她自己定价应该是有数的。
+线上会这个还不好办么，舞台设置一些能打钱互动的特效，既能满足这女人被钱淹没的愿望就是也能到时候刺激消费。同时线下的网络条件要好，这样到现场的也能打钱，b站还不是赚的盆满钵满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但前提是b站能找个好时间点，宣传到位，现场“专业团队”能够专业。不过b站活动多多少少会拉跨已经是传统艺能了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1024#       发表于 2020-7-7 18:40
+
+
+
+
+有一说一，500-1000就好，上座率估计能有一半，关键是时间点啊时间点，对社畜友好才是真<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1025#       发表于 2020-7-7 18:42
+
+
+
+
+别太贵，这样能吸引一些一般通过吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。天价怕不是真的只有天狗会去了。而且还有一堆去不了的。
+syl  mix老哥回来中国吗？等一个特定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 1026#       发表于 2020-7-7 18:42
+
+
+
+ 本帖最后由 単推し人 于 2020-7-7 18:44 编辑 
+
+老实讲担心票价直接去推上或者直播的时候提意见就行了，毕竟买票的是我们，而且她也不了解中国情况，多点人提意见她综合一下不就有最佳方案了吗
+
+我个人觉得是肯定别太贵为好，500到1000这种，现场再多弄些场贩有钱的人也能满足
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1027#       发表于 2020-7-7 18:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别着急，就算她不懂，阿b还能不懂吗，到时候无论发生什么都能一转阿b，有后手的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1028#       发表于 2020-7-7 18:45
+
+
+
+
+我觉得票价这种事不太可能参考外人意见
+
+要么参考阿b的staff，要么直接全盘甩给staff搞，外人意见基本不会看的，盲猜一下价格会跟丰州live差不多吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过还是看live办的怎么样
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1029#       发表于 2020-7-7 18:45
+
+
+
+
+按日本的live价格定也不贵啊，为什么觉得她完全不懂
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 1030#       发表于 2020-7-7 18:48
+
+
+
+
+个人觉得是担心就去提意见，没必要瞎操心，再怎么说也不会比隔壁贵的，赌头好吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 1031#       发表于 2020-7-7 18:50
+
+
+
+
+我还是有个问题，为什么要在推上打TAG<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你打算打什么TAG<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1032#       发表于 2020-7-7 18:50
+
+
+
+
+隔壁?你是指丰州live还是大亏线下啊？说起来大亏线下多少?
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 1033#       发表于 2020-7-7 18:51
+
+
+
+
+既然消息公布了她在直播也会说明一些吧
+
+所以今天还是没直播吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 1034#       发表于 2020-7-7 18:51
+
+
+
+
+现在一想那个抵票的应援页面当时我都没找到过，以为打钱就能免，这次去不了怕不是得买票看转播，希望不要太贵，与粉毛圣人相比持平或者低就好了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1035#       发表于 2020-7-7 18:52
+
+
+
+
+她自己开过个人live，她认识的生主圈一堆人搞过小型live，要她来定只可能低不可能高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 1036#       发表于 2020-7-7 18:52
+
+
+
+
+应该是从夸的定价v综说5ch觉得便宜这一点上发散出来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 1037#       发表于 2020-7-7 18:53
+
+
+
+ 本帖最后由 単推し人 于 2020-7-7 18:57 编辑 
+
+额，公布之后弄个演唱会的tag？或者带个神乐mea 的关键词？我就这么一说，因为推上几乎她都能看到，老自搜怪了
+
+或者在她直播讲到有关演唱会的时候在她自己的生放送那个tag里面提意见应该也行吧，总之我感觉关于票价每个人有自己的想法想说就说呗，她怎么听怎么考虑就交给她自己了，只是提供一种信息参考这样
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1038#       发表于 2020-7-7 18:53
+
+
+
+
+票价定太贵下次bls没钱了好吧，斗虫可是零成本，哪个赚钱不用多说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 1039#       发表于 2020-7-7 18:54
+
+
+
+
+大亏那1280+吧，就一个价格。咩的3000人场应该有不同价位吧？我只能期待最远的位置能便宜一点。
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 1040#       发表于 2020-7-7 18:55
+
+
+
+
+b站那活动本质斗虫，那这次定票低一下当成回馈粉丝没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1041#       发表于 2020-7-7 18:55
+
+
+
+ 本帖最后由 weiweiEX 于 2020-7-7 19:01 编辑 
+
+所以说怎么算应援有结论了吗，比起她定价多少我更担心的是b站整活<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+定价问题我记得她的1st event，她说的就是东西几乎全让staff包办了，我估计这次也差不了多少，别对定价太乐观就是了
+
+
+
+sly整活指的是bls应援白嫖门票，打钱不算门票这个事，总感觉会是个雷
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1042#       发表于 2020-7-7 18:57
+
+
+
+
+这要是办的好，年底bls又是血雨腥风了。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 1043#       发表于 2020-7-7 18:57
+
+
+
+
+b站整活指的是出事的话，你放心，b站必然拉垮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 1044#       发表于 2020-7-7 18:59
+
+
+
+
+不是我想劈啊 但是大亏的那个线下主要还是去线下领周边吧，线上线下的价格几乎差不多。城开YOYO 7楼 我不是土著 有懂哥知道是什么样的建筑吗。
+syl 再血雨腥风 这一次办好我就对阿b满意了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 1045#       发表于 2020-7-7 19:01
+
+
+
+
+快进到财布线下🤺
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1046#       发表于 2020-7-7 19:04
+
+
+
+
+快进到mea 2nd live
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 1047#       发表于 2020-7-7 19:06
+
+
+
+
+当时可没说有线下啊，她要真能定价格最多就是个线上门票价格吧。
+
+线下价格等着看睿叔叔打算怎么整活了呗
+
+
+
+
+
+
+
+-----
+
+####  升级似自己家  
+##### 1048#       发表于 2020-7-7 19:11
+
+
+
+
+要不安了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1049#       发表于 2020-7-7 19:15
+
+
+
+
+？aqua的演唱会1280+?有点小贵啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望咩咩别定这么贵
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1050#       发表于 2020-7-7 19:16
+
+
+
+
+草，杞忧来杞忧去好像也没看出啥有用的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是猜猜会有啥歌吧
+
+原创曲肯定就安排上了，不知道还会有啥歌
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么大的live都弄了，能在搞一个黄皮饺子吗
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 1051#       发表于 2020-7-7 19:19
+
+
+
+
+规则上面写的主播决定线上门票价格，没提线下，我猜线下应该还是b站决定，毕竟场馆器材之类的成本她又不知道
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 1052#       发表于 2020-7-7 19:25
+
+
+
+
+b周年的时候肯定会说演唱会的事吧，到时候直接问她是不是她决定线下票价不就完了，看她说不说吧，现在在这猜测也没用
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 1053#       发表于 2020-7-7 19:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48107170&amp;ptid=1945537" target="_blank">weiweiEX 发表于 2020-7-7 19:16</a>
+
+草，杞忧来杞忧去好像也没看出啥有用的还是猜猜会有啥歌吧
+
+原创曲肯定就安排上了，不知道还会有啥歌 ...</blockquote>
+之前就在做梦要是黄皮饺子ddd也做了 原皮ddd也披露了之后 live里面幕间来个换衣服的转场 就像那张gif那样<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1054#       发表于 2020-7-7 19:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48107304&amp;ptid=1945537" target="_blank">ashero 发表于 2020-7-7 19:29</a>
+
+之前就在做梦要是黄皮饺子ddd也做了 原皮ddd也披露了之后 live里面幕间来个换衣服的转场 就像那张gif那样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">我幻想过好多次马裤螺丝的那种变身，不知道对管人来说门槛怎么样
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1055#       发表于 2020-7-7 19:34
+
+
+
+
+四舍五入等于完成了她的偶像梦
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 1056#       发表于 2020-7-7 19:34
+
+
+
+
+能像魔法少女那样变身吗，就是有裸 体的那种<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 1057#       发表于 2020-7-7 19:38
+
+
+
+
+也不用四舍五入了
+
+11区能有3000人线下live的都算是二线偶像了吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1058#       发表于 2020-7-7 19:39
+
+
+
+
+看到这么一张图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是没啥疑问了
+
+<img src="https://img.saraba1st.com/forum/202007/07/193912dnz863nu0w1i4ruz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-192a45f0a6aa1c33.jpg</strong> (136.93 KB, 下载次数: 0)
+
+下载附件
+
+2020-7-7 19:39 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 1059#       发表于 2020-7-7 19:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48107154&amp;ptid=1945537" target="_blank">SNOWIMEA 发表于 2020-7-7 19:15</a>
+
+？aqua的演唱会1280+?有点小贵啊希望咩咩别定这么贵</blockquote>
+她这个还带棒子这些 算便宜的了 就怕咩的是单门票就要1280
+
+
+
+
+
+
+
+-----
+
+####  Zhudhh  
+##### 1060#       发表于 2020-7-7 19:41
+
+
+
+
+等一波咩的应援棒<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 1061#       发表于 2020-7-7 19:42
+
+
+
+
+别说11区了 初音两年上海都是800人小场 
+
+这次国内整个3000人场真的排面拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1062#       发表于 2020-7-7 19:43
+
+
+
+
+3000人的场去500人不是更拉垮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1063#       发表于 2020-7-7 19:43
+
+
+
+
+换装特效拉到顶配也就是初音演唱会那种了，别想太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1064#       发表于 2020-7-7 19:44
+
+
+
+
+150一个阴兵去大学能拉一票人好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1065#       发表于 2020-7-7 19:49
+
+
+
+
+啊b给一个月开屏宣传能拉来3000人不<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 1066#       发表于 2020-7-7 19:50
+
+
+
+
+那我就故意装成不稀罕的样子，等着他们拿150块钱来大学拉我当阴兵
+
+
+什么？3000人坐满了？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1067#       发表于 2020-7-7 19:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我是去不了现场了，不知道会不会有比较值得收藏的周边
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 1068#       发表于 2020-7-7 19:55
+
+
+
+
+场贩应该搞个每人限购多少件这种吧，上次的线下live我就记得好像出过黄牛买一堆场贩然后倒卖的事？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1069#       发表于 2020-7-7 19:56
+
+
+
+
+群体活动现在不还是得隔一个坐一个吗
+
+
+那再空一点也看不出大区别
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1070#       发表于 2020-7-7 20:00
+
+
+
+
+阿b帮你麻做个pv，公屏挂一个月，加上花丸圣皇其他几个出场引流，holo，虹，花寄，国v几方萌萌人何愁坐不满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1071#       发表于 2020-7-7 20:01
+
+
+
+
+话说除了爱丽丝花丸夸以外那个v是谁啊，怎么好像没听人说起过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1072#       发表于 2020-7-7 20:02
+
+
+
+
+小虾鱼啊，那次斗虫主角
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1073#       发表于 2020-7-7 20:06
+
+
+
+
+介绍一下?国V?真不熟啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1074#       发表于 2020-7-7 20:13
+
+
+
+
+bls最后一小时背刺上来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过和mea没啥关系就是了
+
+
+
+
+
+              
