@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-04 16:01** 
+> ## **本文件最后更新于2020-07-07 12:02** 
 
 
 
@@ -10008,4 +10008,619 @@ ps：正经人谁他妈写日记啊<img src="https://static.saraba1st.com/image/
 
 
 
-                               
+
+
+-----
+
+####  8aa8aa8aa  
+##### 53043#       发表于 2020-7-4 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48064233&amp;ptid=98922" target="_blank">发财就手 发表于 2020-7-4 14:17</a>
+当初鱼人岛回忆里白星她妈妈表现的很傻白甜救了个天龙人最后被杀被骂，结果后面揭示那个天龙人与明哥是亲 ...</blockquote>
+但乙姬王妃的事情只是死了她一个，御田作为核心领导人，可是拖累了整个和之国
+
+—— 来自 samsung SM-G770F, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  萝卜roto  
+##### 53044#       发表于 2020-7-4 18:21
+
+
+
+
+凯多的女儿这么漂亮.肯定跟大妈无关的吧.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+路飞后宫继七武海后现在收到四皇那也是想不到啊.
+
+
+
+
+
+
+
+-----
+
+####  拉萨乌姆  
+##### 53045#       发表于 2020-7-4 18:23
+
+
+
+
+这样有意思吗?解放王
+
+
+
+
+
+
+
+-----
+
+####  发财就手  
+##### 53046#       发表于 2020-7-4 18:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48064754&amp;ptid=98922" target="_blank">24k纯帅 发表于 2020-7-4 15:01</a>
+
+死了很多年了，果实流转到Mr2</blockquote>
+二十一年前御田死的时候，大和已经出生还看着他行刑，老太婆也是这个时段被凯多杀死的，她跟凯多早早有孩子不是没可能的事
+
+这老太婆年轻的样子，特别是眉毛跟大和挺像
+<img src="https://wx3.sinaimg.cn/mw690/60f8184agy1ggf4grwfh2j208c08pwf3.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marymax  
+##### 53047#       发表于 2020-7-4 18:38
+
+
+
+<blockquote>发财就手 发表于 2020-7-4 18:36
+二十一年前御田死的时候，大和已经出生还看着他行刑，老太婆也是这个时段被凯多杀死的，她跟凯多早早有孩 ...</blockquote>
+啊？那凯多也太狠了吧，为了个敌人把帮自己的孩子妈都杀了。
+
+
+
+
+
+
+
+-----
+
+####  发财就手  
+##### 53048#       发表于 2020-7-4 18:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48067288&amp;ptid=98922" target="_blank">marymax 发表于 2020-7-4 18:38</a>
+
+啊？那凯多也太狠了吧，为了个敌人把帮自己的孩子妈都杀了。</blockquote>
+可能是觉得那个老太婆妨碍双方间的决斗，后面明明捉住桃之助也不亲手杀大概也是对御田的尊重之一
+
+
+
+
+
+
+
+-----
+
+####  机动妖精  
+##### 53049#       发表于 2020-7-4 19:16
+
+
+
+
+孩子随妈。必然是凯多年轻时候犯下的过错
+
+
+
+
+
+
+
+-----
+
+####  メンヘラオタ  
+##### 53050#       发表于 2020-7-4 21:07
+
+
+
+
+根据脸就推断是老太太生的有点牵强。这不都是娜美星人啊……
+
+
+
+
+
+
+
+-----
+
+####  抽烟的猴  
+##### 53051#       发表于 2020-7-4 23:04
+
+
+
+
+怎么可能是老太太，那个娜美脸是老太太用模仿果实变出来的
+
+
+
+
+
+
+
+-----
+
+####  发财就手  
+##### 53052#       发表于 2020-7-5 00:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48070243&amp;ptid=98922" target="_blank">抽烟的猴 发表于 2020-7-4 23:04</a>
+
+怎么可能是老太太，那个娜美脸是老太太用模仿果实变出来的</blockquote>
+尾田作为细节狂魔，真的会随便画张脸吗？变完那张脸后随即又变成金狮子的脸，我倾向于那张美人脸就是这个老太婆年轻时的模样
+
+
+
+
+
+
+
+-----
+
+####  绝赞販売中  
+##### 53053#       发表于 2020-7-5 01:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48071006&amp;ptid=98922" target="_blank">发财就手 发表于 2020-7-5 00:10</a>
+尾田作为细节狂魔，真的会随便画张脸吗？变完那张脸后随即又变成金狮子的脸，我倾向于那张美人脸就是这个 ...</blockquote>
+话说回来，和之国在御田跑出去之前是锁国的，而且是为了八百年那事锁的，老太婆模仿到年轻的金狮子，那要摸到才能模仿，老太太得几岁了...还能和凯多生个女儿太牵强了.模仿果实也不是波泥那个回复青春的
+
+
+
+
+
+
+
+-----
+
+####  qweqweqwe4  
+##### 53054#       发表于 2020-7-5 07:28
+
+
+
+<blockquote>发财就手 发表于 2020-7-4 14:17
+当初鱼人岛回忆里白星她妈妈表现的很傻白甜救了个天龙人最后被杀被骂，结果后面揭示那个天龙人与明哥是亲 ...</blockquote>
+白星妈救天龙人时，那天龙人孤身被几十万鱼人包围着掀不起半点水花，白星妈在这种确保大势的情况下才有余地救他结个善缘。和御田把自己浪死完全不是一回事。
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53055#       发表于 2020-7-5 07:49
+
+
+
+ 本帖最后由 DGIL 于 2020-7-5 08:14 编辑 
+
+大妈有卡二凯多有大和
+
+做为曾经的团友。。白胡子这儿子白二世也太拉稀了吧。。虽然有实力。。
+
+应该是假的。。
+
+
+
+
+
+
+898C7D15EDF31B41EF3EFEFCBD3CF8D7.jpg
+(185.75 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-7-5 07:47 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/05/074718as4ui49zifbfw4wy.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53056#       发表于 2020-7-5 07:53
+
+
+
+ 本帖最后由 DGIL 于 2020-7-5 08:15 编辑 
+
+路飞搞大事件，基本上都要和公主搞暧昧，有些虽然职位不是公主，但是定位类似，比如水都罗宾(女帝的话，她是老婆<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">现在和之国篇真正的公主出现了，凯多女儿这么水灵有趣真是想不到。。如果不是御田粉丝就好了。。
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53057#       发表于 2020-7-5 07:53
+
+
+
+ 本帖最后由 DGIL 于 2020-7-5 08:23 编辑 
+
+御田真是造型不讨喜，事迹让人无语，设定强行高人气，实力强劲，什么都和他有关。。整一个杰克苏，海贼王中让人喜欢的角色不少，这位总之我是没啥感觉....感觉就是在尬吹他多牛逼多有人气。。
+他的篇章里面最有价值就是罗杰和白胡子的过去。。凉了就快点过吧，现在整这么一出。
+凯多有个这么水灵的女儿。。还是他的脑残粉。。不过她粉御田的时候这人已经下油锅了，可能也没能很好了解，捡到他的日记就粉上了。。。。对比一下桃之助和大和。。我想站凯多这边(虽然日和还不错)大和潜力股..想下注。
+
+这凯多，也挺宠女儿的，她要做男人，那就真当她男人，称呼都变成儿子了。。。全团都叫她少爷，一个宠女儿的老父亲形象跃于纸上(起码到现在为止是这样。。)让我好感大增啊。。
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  光明寺茉衣子  
+##### 53058#       发表于 2020-7-5 08:53
+
+
+
+
+我一直挺喜欢凯多的，莽夫枭雄深得我心，至于御田，你谁啊？加上那个讨厌巴拉的小鬼，看着真烦人。
+
+乌尔提做我的姐姐老婆吧！
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 53059#       发表于 2020-7-5 09:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48067079&amp;ptid=98922" target="_blank">萝卜roto 发表于 2020-7-4 18:21</a>
+
+凯多的女儿这么漂亮.肯定跟大妈无关的吧.
+
+路飞后宫继七武海后现在收到四皇那也是想不到啊. ...</blockquote>
+夏洛特布琳：？？
+
+
+
+
+
+
+
+-----
+
+####  DGIL  
+##### 53060#       发表于 2020-7-5 09:21
+
+
+
+ 本帖最后由 DGIL 于 2020-7-5 09:24 编辑 
+<blockquote>光明寺茉衣子 发表于 2020-7-5 08:53
+我一直挺喜欢凯多的，莽夫枭雄深得我心，至于御田，你谁啊？加上那个讨厌巴拉的小鬼，看着真烦人。
+
+乌尔提 ...</blockquote>
+不知道会不会上演孝女狼牙棒的戏码。。
+
+难道大和会是路飞击败凯多的关键。。?(震惊!因追星，女儿竟对老父亲~~
+
+乌尔提小姐姐虽然会变成恐龙，但是还挺萌的，有怪力且招牌是头锤太好玩了啊
+
+
+
+
+
+
+
+-----
+
+####  光明寺茉衣子  
+##### 53061#       发表于 2020-7-5 09:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48073183&amp;ptid=98922" target="_blank">DGIL 发表于 2020-7-5 09:21</a>
+
+不知道会不会上演孝女狼牙棒的戏码。。
+
+难道大和会是路飞击败凯多的关键。。?(震惊!因追星，女儿竟对老父 ...</blockquote>
+雷鸣四卦能打得动凯多有鬼了
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53062#       发表于 2020-7-5 15:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48073028&amp;ptid=98922" target="_blank">光明寺茉衣子 发表于 2020-7-5 08:53</a>
+
+我一直挺喜欢凯多的，莽夫枭雄深得我心，至于御田，你谁啊？加上那个讨厌巴拉的小鬼，看着真烦人。
+
+乌尔提 ...</blockquote>
+这个凯多明明超强却过分慎重，莽只是用来欺骗别人的。御田的人设问题，前面的楼层已经说多了，再重复也没啥必要了。
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 53063#       发表于 2020-7-5 15:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48073183&amp;ptid=98922" target="_blank">DGIL 发表于 2020-7-5 09:21</a>
+
+不知道会不会上演孝女狼牙棒的戏码。。
+
+难道大和会是路飞击败凯多的关键。。?(震惊!因追星，女儿竟对老父 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这不如奶狗哥和凯多打的时候，凯多复制了当年御田的败局
+
+
+
+
+
+
+
+-----
+
+####  发财就手  
+##### 53064#       发表于 2020-7-5 18:07
+
+
+
+ 本帖最后由 发财就手 于 2020-7-5 18:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48071685&amp;ptid=98922" target="_blank">绝赞販売中 发表于 2020-7-5 01:11</a>
+
+话说回来，和之国在御田跑出去之前是锁国的，而且是为了八百年那事锁的，老太婆模仿到年轻的金狮子，那要 ...</blockquote>
+金狮子以前是洛克斯海贼团的，而金狮子打扮上就一股和之国风格，外加这个老太婆对大蛇的黑炭家族往事十分清楚，两者极有可能存在关系，甚至于老太婆那张老脸也是用能力变出来的，模仿果实的能力变成的对象可以连身体都一起变，与凯多繁衍变个年轻身体就行
+
+
+我倾向于凯多与妖婆的年龄差不多的
+
+
+
+
+
+
+
+-----
+
+####  萝卜roto  
+##### 53065#       发表于 2020-7-6 00:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48073181&amp;ptid=98922" target="_blank">GreenBird 发表于 2020-7-5 09:21</a>
+
+夏洛特布琳：？？</blockquote>
+路飞路飞啦<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 53066#       发表于 2020-7-7 04:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48078393&amp;ptid=98922" target="_blank">发财就手 发表于 2020-7-5 18:07</a>
+
+金狮子以前是洛克斯海贼团的，而金狮子打扮上就一股和之国风格，外加这个老太婆对大蛇的黑炭家族往事十分 ...</blockquote>
+想想看金狮子这个剧情资源在剧场版用掉了，怪可惜的
+
+
+
+
+
+
+
+-----
+
+####  高数  
+##### 53067#       发表于 2020-7-7 08:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48073028&amp;ptid=98922" target="_blank">光明寺茉衣子 发表于 2020-7-5 08:53</a>
+
+我一直挺喜欢凯多的，莽夫枭雄深得我心，至于御田，你谁啊？加上那个讨厌巴拉的小鬼，看着真烦人。
+
+乌尔提 ...</blockquote>
+同感+10086
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 53068#       发表于 2020-7-7 09:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48072782&amp;ptid=98922" target="_blank">DGIL 发表于 2020-7-5 07:53</a>
+御田真是造型不讨喜，事迹让人无语，设定强行高人气，实力强劲，什么都和他有关。。整一个杰克苏，海贼王中 ...</blockquote>
+御田作为冒险家而言，是极其帅气和浪漫的。就像空岛篇的大话王罗兰度一样。
+作为将军领导和之国才是令人无语，拖累整个和之国
+
+—— 来自 samsung SM-G770F, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  linux40  
+##### 53069#       发表于 2020-7-7 10:12
+
+
+
+
+好像又可以捡起来看了
+
+
+
+
+
+
+
+-----
+
+####  Keynes  
+##### 53070#       发表于 2020-7-7 10:18
+
+
+
+
+弟控乌尔提，我<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天宮奏  
+##### 53071#       发表于 2020-7-7 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099657&amp;ptid=98922" target="_blank">8aa8aa8aa 发表于 2020-7-7 09:58</a>
+
+御田作为冒险家而言，是极其帅气和浪漫的。就像空岛篇的大话王罗兰度一样。
+
+作为将军领导和之国才是令人 ...</blockquote>
+我觉得罗兰度在对于落后文明的态度上可以看出他本身还是有一些气度的（不讨论带国王去找黄金这个行为会带来浩劫）
+
+御田真的，除了一开始吃关东煮，哪儿都没感觉到有罗兰度那样明显的个人魅力……
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 53072#       发表于 2020-7-7 10:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">剧中人喜欢御田正常啊
+
+他的优点 显而易见 
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">干的混帐事 只有读者才能很清楚
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 53073#       发表于 2020-7-7 11:02
+
+
+
+
+对于御田的看法，会不会有读者的文化差异？
+
+例如日本读者可能觉得御田很合理很豪迈，没有一丝丝的不适感？
+
+
+
+
+
+                              
