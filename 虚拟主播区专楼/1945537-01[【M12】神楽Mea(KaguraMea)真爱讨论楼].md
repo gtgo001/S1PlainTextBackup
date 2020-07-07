@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-07 22:15** 
+> ## **本文件最后更新于2020-07-08 02:13** 
 
 
 
@@ -19585,4 +19585,315 @@ meaqualice这个是爱丽丝当时说想看的</blockquote>
 
 
 
-             
+
+
+-----
+
+####  Cuppco  
+##### 1095#       发表于 2020-7-7 22:24
+
+
+
+
+我总觉得风向不太对
+这事儿还不容易终于有个准确的说法了
+为啥不是先感到高兴反而是一个二个担心票价？
+一般来说票价定的高不是她拿的也就多吗？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 1096#       发表于 2020-7-7 22:28
+
+
+
+ 本帖最后由 A2014720 于 2020-7-7 22:29 编辑 
+
+因为隔壁（
+这事还没个详细，我是不敢先贷款了，3000吓到我了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+阿b办事，我心是提到嗓子眼了
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1097#       发表于 2020-7-7 22:28
+
+
+
+
+这要是她自己的个人live肯定不会想这么多，可是这次是阿b主办的啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">这可是阿b啊
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 1098#       发表于 2020-7-7 22:29
+
+
+
+
+因为隔壁票价高杂音很多啊
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1099#       发表于 2020-7-7 22:30
+
+
+
+
+对啊细细一想别人都是推开演唱会高兴上天了，怎么m楼疯狂杞忧的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1100#       发表于 2020-7-7 22:33
+
+
+
+
+什v什粉，m楼不安不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1101#       发表于 2020-7-7 22:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然阿b办事不一定靠谱但是票价上杞忧也太奇怪了吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1102#       发表于 2020-7-7 22:36
+
+
+
+ 本帖最后由 weiweiEX 于 2020-7-7 22:38 编辑 
+
+那下回杞忧的时候我就往杞忧楼开传送去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来我以为当成bls时b站没说明白东西算个雷，现在整明白了也就没事了，没想到票价能车一晚上的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1103#       发表于 2020-7-7 23:08
+
+
+
+<blockquote>シュッシュの神楽めあ、グッポグッポの卯月コウのフレーズ聞いてりゃ手出してたかもわからん</blockquote>
+推上看到这么一条，这说的是啥啊
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 1104#       发表于 2020-7-7 23:17
+
+
+
+ 本帖最后由 兔耳僵尸 于 2020-7-7 23:23 编辑 
+
+看不懂，グッポグッポ好像是形容口○的拟声词
+
+シュッシュ和mea我只能想到是喷除臭剂的声音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1105#       发表于 2020-7-7 23:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48109962&amp;ptid=1945537" target="_blank">兔耳僵尸 发表于 2020-7-7 23:17</a>
+
+看不懂，グッポグッポ好像是形容口○的拟声词
+
+
+—— 来自 vivo V1824A, Android 10上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+草，我搜到wiki上还以为是个和什么综艺有关的词<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 1106#       发表于 2020-7-7 23:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48109995&amp;ptid=1945537" target="_blank">weiweiEX 发表于 2020-7-7 23:20</a>
+草，我搜到wiki上还以为是个和什么综艺有关的词</blockquote>
+推特搜索可以比较方便地看到一些词的使用例
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1107#       发表于 2020-7-7 23:35
+
+
+
+
+“日本人怎么这么多拟声词”
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1108#       发表于 2020-7-7 23:48
+
+
+
+
+“甚至这些拟声词可以用在各种各样奇怪的场合”（漫画生肉饼干）
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1109#       发表于 2020-7-7 23:56
+
+
+
+
+真的受够了， 日语的拟声词<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1110#       发表于 2020-7-8 00:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">早睡早起等咩
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 1111#       发表于 2020-7-8 01:00
+
+
+
+
+啊，突然想起之前她b限的时候打探中国🍉行情，怕不是早就打算好了借助此次来中国的机会在中日之间干一笔倒卖🍉的生意，以此大赚一笔，真是好算计啊，🌸妹，竟恐怖如斯<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 1112#       发表于 2020-7-8 01:18
+
+
+
+
+那现在转行卖西瓜还来得及吗？
+
+
+
+
+
+            
