@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-07 16:13** 
+> ## **本文件最后更新于2020-07-07 18:14** 
 
 
 
@@ -16217,4 +16217,1690 @@ syl  前面看到了前字幕组组员和现同好会会员的发言，总觉�
 
 
 
-                   
+
+
+-----
+
+####  惑星  
+##### 910#       发表于 2020-7-7 16:15
+
+
+
+
+上海3000人场馆草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 911#       发表于 2020-7-7 16:15
+
+
+
+
+在路上了
+
+
+
+
+
+
+TIM图片20200707161513.png
+(51.88 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-7-7 16:15 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/07/161529q63ou39l6o3ueu94.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 912#       发表于 2020-7-7 16:16
+
+
+
+
+中午来了，准备直接去live捧个人场了。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 913#       发表于 2020-7-7 16:16
+
+
+
+
+3000人能坐满吗。这是要丢人啊
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 914#       发表于 2020-7-7 16:17
+
+
+
+
+反正我肯定会去的，算上我家那位两张票
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 915#       发表于 2020-7-7 16:20
+
+
+
+
+3000人的馆子还行，今年的话我应该能去一次
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 916#       发表于 2020-7-7 16:20
+
+
+
+
+3000人场是不是玩大了..当然我不是说想去的没有3000人，主要还是异地
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 917#       发表于 2020-7-7 16:20
+
+
+
+
+3000人我觉得有点夸张了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 918#       发表于 2020-7-7 16:20
+
+
+
+ 本帖最后由 面具13 于 2020-7-7 16:22 编辑 
+
+算是有个消息了。虽然还没说之后会延期多久。线下基本不可能去，线上票如果不能免费会买张支持。
+
+syl，VT居然是拖家带口看管的吗？
+
+
+回复楼下，线下肯定是要卖票的，线上以前BLS的规则又很模糊。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 919#       发表于 2020-7-7 16:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">啊这。线下的话，这是要卖票？马萨卡还有谷子一条龙？
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 920#       发表于 2020-7-7 16:22
+
+
+
+
+如果票便宜的话坐满3000人还是有希望的，还有其他嘉宾呢
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 921#       发表于 2020-7-7 16:23
+
+
+
+
+3000人，TMD<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 922#       发表于 2020-7-7 16:23
+
+
+
+
+你麻不是只有铁杆粉丝1000人吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 923#       发表于 2020-7-7 16:24
+
+
+
+
+原计划的3000人场馆不是因为疫情原因取消了吗，新安排的场馆又没说是多少人的，现在这状况不太可能安排太多人聚集
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 924#       发表于 2020-7-7 16:24
+
+
+
+
+直接春节开吧，下半年没时间去上海啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 925#       发表于 2020-7-7 16:24
+
+
+
+
+3000人....问题是现在我学校都出不去.....
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 926#       发表于 2020-7-7 16:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我算了算，如果座位隔着坐的话大概是静安体育中心，就是之前水水来的场子。如果挨着的话大概是国家会展中心，aimer之前的场子
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 927#       发表于 2020-7-7 16:25
+
+
+
+
+那还得算上本土才1000人，我们这也就300吧
+
+没那种行动力，线上买票支持下得了
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 928#       发表于 2020-7-7 16:26
+
+
+
+
+确实还有其他4个人，也有来凑热闹的，3000应该行吧
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 929#       发表于 2020-7-7 16:27
+
+
+
+
+希望上海粉丝给力 
+
+
+我可以买一张抽给上海朋友（
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 930#       发表于 2020-7-7 16:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是只有阿咩一个人，有五个呢
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 931#       发表于 2020-7-7 16:27
+
+
+
+
+这3000啊b看后台数据定的？ 不过位置多也好不怕黄牛。
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 932#       发表于 2020-7-7 16:28
+
+
+
+
+去去去，第一场国内的live呢<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+syl，鼻血组本来想说特指露西亚，结果想想草
+
+
+
+
+
+
+
+-----
+
+####  ロキシー  
+##### 933#       发表于 2020-7-7 16:28
+
+
+
+
+挺好，有就行，本来今天刚想黑屁一波阿B的
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 934#       发表于 2020-7-7 16:29
+
+
+
+
+如果我保研夏令营能拿到优秀营员的话，我就去参加我人生的第一场线下live<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 呓亘| + 1|加油，记得提前联系导师|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 935#       发表于 2020-7-7 16:34
+
+
+
+
+上海好啊，我这边过去也就一个小时
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 936#       发表于 2020-7-7 16:35
+
+
+
+ 本帖最后由 単推し人 于 2020-7-7 16:37 编辑 
+
+去去去，嗯生一场重感冒和导师嫖两天假期还是做的到的，第一场国内个人live死也赶过去好吧。
+
+ps：之前疫情还不是很严重的那一段时间她提过好几次在bilibili就是偶像，怕是那个时候就确定了，现在想来多半她提的时候应该全是满满的幸福感，我好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">可惜造化弄人啊，遇上疫情
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 937#       发表于 2020-7-7 16:36
+
+
+
+
+b的付费人数这几个月也就3000左右
+
+tmd，现在我只会说tmd了
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 938#       发表于 2020-7-7 16:37
+
+
+
+
+好歹能办，好歹是在中国
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 939#       发表于 2020-7-7 16:38
+
+
+
+
+爽到
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 940#       发表于 2020-7-7 16:41
+
+
+
+
+庆贺吧<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 941#       发表于 2020-7-7 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48104783&amp;ptid=1945537" target="_blank">面具13 发表于 2020-7-7 16:20</a>
+算是有个消息了。虽然还没说之后会延期多久。线下基本不可能去，线上票如果不能免费会买张支持。
+
+syl，VT居 ...</blockquote>
+她不看管，但我们经常一起去音乐会之类的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 942#       发表于 2020-7-7 16:45
+
+
+
+
+3000？ <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 943#       发表于 2020-7-7 16:46
+
+
+
+
+线下演唱会还是这么大的场子她本人怕是会过来哦，快进到被特定<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 944#       发表于 2020-7-7 16:48
+
+
+
+
+这 人过来就是真名解放加来回一个月隔离 不可能的吧
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 945#       发表于 2020-7-7 16:49
+
+
+
+
+草，记者动态说本来二周年纪念公开的，疫情延期了
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 946#       发表于 2020-7-7 16:49
+
+
+
+
+真人想太多了。而且我记得她之前应该是真人来过的吧？上次B站搞得啥活动来着，就是有可爱的孕妇装白姨的那次
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 947#       发表于 2020-7-7 16:49
+
+
+
+
+想多了，这时候想特就应该在b日本分部门口蹲着
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 948#       发表于 2020-7-7 16:50
+
+
+
+
+现在中日正在协商互通人员，第一批好像就是商务人员，如果阿b以商务人员的名义把她搞过来还真有可能
+
+或者说再等几个月疫情状况缓和了，可能也不用隔离那么久？
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 949#       发表于 2020-7-7 16:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们是忘了bml远程连线还是咋地
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 950#       发表于 2020-7-7 16:51
+
+
+
+
+真人哪来过啊 bw都是线上 你要说bls去过阿b日本本部还有可能
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 951#       发表于 2020-7-7 16:52
+
+
+
+
+这算我奶中了么？真有线下啊，我怀疑阿b在视奸你楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 952#       发表于 2020-7-7 16:53
+
+
+
+
+手抽了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 953#       发表于 2020-7-7 16:53
+
+
+
+
+月读
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 954#       发表于 2020-7-7 16:53
+
+
+
+
+3000真不是多打一个0吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 955#       发表于 2020-7-7 16:54
+
+
+
+ 本帖最后由 惑星 于 2020-7-7 16:55 编辑 
+
+那先快进到丢人
+
+我懂了，是家庭旅行（）
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 956#       发表于 2020-7-7 16:54
+
+
+
+
+如果没有疫情、并且是1月份定档的话，3000人的场子其实没有任何问题
+
+
+然鹅现在有了疫情，并且已经过了半年了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+我看最后安排一个500人的线下场子差不多意思意思得了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 957#       发表于 2020-7-7 16:55
+
+
+
+
+19歲姑娘沒人陪著要隻身出國不太可能
+
+又不像企業勢能有staff能陪著
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 958#       发表于 2020-7-7 16:55
+
+
+
+
+快进到我要让此地座无虚席
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 959#       发表于 2020-7-7 16:59
+
+
+
+
+神推阿咩如果登上武道馆我就死而无憾
+
+啊，早上还感觉前途暗淡人生无光充满了可恶的男人，现在突然感觉光明四射璀璨夺目人生有望，果然人还是得有个盼头就不会东想西想的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 960#       发表于 2020-7-7 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48105350&amp;ptid=1945537" target="_blank">meatybobby 发表于 2020-7-7 16:55</a>
+
+19歲姑娘沒人陪著要隻身出國不太可能
+
+又不像企業勢能有staff能陪著</blockquote>
+你忘记了这次演唱会不是她一个人，还有好几个企业势呢，一起组团来？
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 961#       发表于 2020-7-7 17:00
+
+
+
+
+啊这，今天不黑啊b
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 962#       发表于 2020-7-7 17:01
+
+
+
+
+事业民狂喜
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 963#       发表于 2020-7-7 17:01
+
+
+
+
+定在国庆吧我也想去线下<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 964#       发表于 2020-7-7 17:03
+
+
+
+
+那个号简介还标了个1st live 是不是还有2nd 3rd<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 965#       发表于 2020-7-7 17:05
+
+
+
+
+我觉得各位都应该来听听这首歌，一直是我心中的梦想
+[https://www.bilibili.com/video/BV1zf4y1y735](https://www.bilibili.com/video/BV1zf4y1y735)   【桃色单恋】神推咩咩登上武道馆我就死而无憾！【神楽めあ】    
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 966#       发表于 2020-7-7 17:06
+
+
+
+
+2nd 3rd那是下次斗虫冠军的事，这次做成啥样直接关系到年底bls的绩效，阿睿自然要重视一下
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 967#       发表于 2020-7-7 17:07
+
+
+
+
+大家多刷刷坐不满，先投降再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 968#       发表于 2020-7-7 17:08
+
+
+
+
+改改名字，给今年斗虫冠军接着用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 969#       发表于 2020-7-7 17:13
+
+
+
+
+┏┷☆
+
+┃オ┃
+
+┃タ┃
+
+┃ク┃
+
+┃の┃
+
+┃金┃
+
+┃で┃
+
+┃不┃
+
+┃労┃
+
+┃所┃
+
+┃得┃
+
+★━┛
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 970#       发表于 2020-7-7 17:13
+
+
+
+
+啊这，我就在上海，有没面基可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 971#       发表于 2020-7-7 17:15
+
+
+
+
+人均付费tm有100吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+搞啥呢，隔壁200都有人嫌贵，阿b你在想什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 972#       发表于 2020-7-7 17:16
+
+
+
+
+5个人呢，不慌（
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 973#       发表于 2020-7-7 17:17
+
+
+
+
+十一秋梨膏，我必去特定楼友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 974#       发表于 2020-7-7 17:20
+
+
+
+
+阿b当初自己说的专属宣发计划，千万用户流量，到时候要是能首页上一挂，3000人不手到擒来？（乐观主义者）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+-zue37Q5-cz7yK2eT3cSpu-1y.png
+(85.74 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-7-7 17:20 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/07/172049mgwaey55sjb3a3p3.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 975#       发表于 2020-7-7 17:21
+
+
+
+
+我不管，先投降再说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 976#       发表于 2020-7-7 17:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 977#       发表于 2020-7-7 17:26
+
+
+
+
+现实朋友必没有虚拟女人重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 978#       发表于 2020-7-7 17:26
+
+
+
+
+你们别搞错了，企业来不来是随她们的。她们不来也很正常。
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 979#       发表于 2020-7-7 17:28
+
+
+
+
+有了就行
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 980#       发表于 2020-7-7 17:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">舒服了
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 981#       发表于 2020-7-7 17:30
+
+
+
+
+不知道具体什么时间啊，能赶上暑假正好，白嫖学校两个月工资和假期
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 982#       发表于 2020-7-7 17:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我不管，线下去定了
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 983#       发表于 2020-7-7 17:30
+
+
+
+
+一般live线下票价格是b区680 A区980 S区1280 然后一半是S区 真的3000能坐满吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ggyouan  
+##### 984#       发表于 2020-7-7 17:31
+
+
+
+
+陪跑咩啊的另外四个liver是誰我都快忘了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 985#       发表于 2020-7-7 17:33
+
+
+
+
+爱丽丝大亏鹿乃？还有个国v想不起是谁了。。
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 986#       发表于 2020-7-7 17:34
+
+
+
+
+就是女人a，女人b，女人c和爱丽丝
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 987#       发表于 2020-7-7 17:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48105887&amp;ptid=1945537" target="_blank">ggyouan 发表于 2020-7-7 17:31</a>
+
+陪跑咩啊的另外四个liver是誰我都快忘了</blockquote>
+大亏 holo 
+
+爱丽丝 彩虹 
+
+花丸 花寄
+
+Siva小虾鱼 雪风
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 988#       发表于 2020-7-7 17:35
+
+
+
+
+爱丽丝夸虾还有个忘了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 989#       发表于 2020-7-7 17:35
+
+
+
+
+有条件去的话尽量去呗，话说这几个嘉宾是不是有一个还没3d，估计就是给首歌露个脸的感觉吧，这个月说是有家庭旅行，万一真过来了呢
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 990#       发表于 2020-7-7 17:38
+
+
+
+
+要是真过来我估计就有人对着入境日本人名单挨个翻了，BW那种远程连麦可能性更大吧，要不就是dwumeaqua牡丹那种黑暗女子会那种
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 991#       发表于 2020-7-7 17:39
+
+
+
+
+老实讲我期待她过来居然是因为想听她的中国旅游杂谈，什么沿途见闻啊，各种正宗中华美食啦，各种东西啦，全是她没见过的新东西，由她来说肯定很有趣
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 992#       发表于 2020-7-7 17:40
+
+
+
+
+如果是十一就悲剧了，本来想拉发小一起去的，十一发小结婚我反而要去给他当伴郎<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 993#       发表于 2020-7-7 17:41
+
+
+
+
+不过话说各处都有说只要在bls打过金瓜子就能免线上票的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我怎么感觉有点玄呢，好像当时的bls也只说应援能免票，但没说怎么算应援
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 994#       发表于 2020-7-7 17:47
+
+
+
+
+活动页面有个很隐蔽的入口好像可以选应援投票，无所谓了，买票多大事
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 995#       发表于 2020-7-7 17:48
+
+
+
+
+这么一说才反应过来，打过钱的线上免票，所以线上那个转播基本算白给啊，主要靠线下搞得规模大一点才能捞钱回本啊，可能真的能等到一个中国见闻的杂谈了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 996#       发表于 2020-7-7 17:49
+
+
+
+
+其他企業勢保底夸皇總是會出席的吧
+
+倒不如說夸皇如果拒絕那會發生什麼事我不敢想像<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+3000人的壓力就全在阿B身上了 又不是坐不滿還要咩賠錢的
+
+阿B傾全站之力下去宣發3000人不是多大難度 除非阿B連宣發都拉胯
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 997#       发表于 2020-7-7 17:49
+
+
+
+
+怎么捞的回来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+3000，怕不是这两年挣得钱全没了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 998#       发表于 2020-7-7 17:51
+
+
+
+
+亲身过来是做梦，有什么必要过来吗。
+
+另外别猜家庭旅行了这玩意又不是一两天就能搞好的。
+问了人说是暑假搞很难，申报都卡着的。可能性不大，猜的话估计国庆了吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 999#       发表于 2020-7-7 17:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48106104&amp;ptid=1945537" target="_blank">pei23333 发表于 2020-7-7 17:48</a>
+
+这么一说才反应过来，打过钱的线上免票，所以线上那个转播基本算白给啊，主要靠线下搞得规模大一点才能捞钱 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我是怕b站整活，bls打钱不算应援→都来付门票钱→门票钱说是bls第一订的，总感觉这样火会烧到mea头上
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1000#       发表于 2020-7-7 17:57
+
+
+
+
+不管怎么说有总比没有好。拉上爱丽丝大亏总得有其他粉来吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Kanoya  
+##### 1001#       发表于 2020-7-7 17:58
+
+
+
+
+那啥，好哥哥们，插个话<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+官组新熟肉看了，当时整着阴间活的时候挂着直播在做别的事，没体会到这么阴间<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+求懂日语的好哥哥把「勉强能冲」这句话翻译成日语，下次这吊羊再整这种活我就拿这话打sc去<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1002#       发表于 2020-7-7 18:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48106236&amp;ptid=1945537" target="_blank">Kanoya 发表于 2020-7-7 17:58</a>
+
+那啥，好哥哥们，插个话
+
+
+官组新熟肉看了，当时整着阴间活的时候挂着直播在做别的事，没体会到这么 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202007/07/180315uuoz6r6aww24xwbr.png" referrerpolicy="no-referrer">
+
+
+<strong>冲.png</strong> (6.96 KB, 下载次数: 0)
+
+下载附件
+
+2020-7-7 18:03 上传
+
+
+
+
+
+抜ける应该就是吧<strong><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"></strong>
+
+
+
+
+
+                
