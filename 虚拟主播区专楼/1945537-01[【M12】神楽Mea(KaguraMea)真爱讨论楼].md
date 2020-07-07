@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-07 12:18** 
+> ## **本文件最后更新于2020-07-07 14:16** 
 
 
 
@@ -15208,4 +15208,826 @@ b站这边可以有一点要素就能引来普通路人粉或者贴贴人刷meaq
 
 
 
-                     
+
+
+-----
+
+####  惑星  
+##### 856#       发表于 2020-7-7 12:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48101767&amp;ptid=1945537" target="_blank">weiweiEX 发表于 2020-7-7 12:17</a>
+舞元不是那个pv整出来联系上的吗
+
+另外怎么感觉你楼的mea已经岌岌可危内忧外患了一样 ...</blockquote>
+对啊，为啥找舞元合作pv，翻排行榜啊
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 857#       发表于 2020-7-7 12:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48101723&amp;ptid=1945537" target="_blank">惑星 发表于 2020-7-7 12:14</a>
+你tm突然就把我打成全肯定民了，你有病吧</blockquote>
+谁指你了，难道现在不是这种情况吗？大多数都是不出声的人，一部分贴贴人或者乐子人就能引导她去提meaqua或者舞元，对这种情况不爽的又能怎么办？在评论区直球是引战，去推特上发还怕影响这女人心情，除了在这里到点苦水还有什么方法吗
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 858#       发表于 2020-7-7 12:19
+
+
+
+
+我直说了，你咩姐早期的名号就是神经质，黄段子，口嗨，bg，我是那时候留下来的观众，我不想被赶走
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 859#       发表于 2020-7-7 12:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么卑微，你也想怪文书倒黑泥搞她心态？要觉得弹幕不行不妨顺着话头多抛些她能跟得上的话题，再不济附和刷几句降一降弱智弹幕的浓度也行
+
+
+当然这样久了小心变成认知厨
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 860#       发表于 2020-7-7 12:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48101791&amp;ptid=1945537" target="_blank">惑星 发表于 2020-7-7 12:18</a>
+
+对啊，为啥找舞元合作pv，翻排行榜啊</blockquote>
+我记得不是说什么突然听到舞元的歌声就选了他吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 861#       发表于 2020-7-7 12:23
+
+
+
+
+我把杞忧楼顶上来了。现在字幕组楼和黑泥楼也在上面。至少希望m楼里各种势力好好相处<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 862#       发表于 2020-7-7 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48101859&amp;ptid=1945537" target="_blank">weiweiEX 发表于 2020-7-7 12:22</a>
+我记得不是说什么突然听到舞元的歌声就选了他吗</blockquote>
+翻排行榜觉得舞元行，点进去了解了一下，听到了舞元的歌声
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 863#       发表于 2020-7-7 12:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48101794&amp;ptid=1945537" target="_blank">makourisu 发表于 2020-7-7 12:18</a>
+
+谁指你了，难道现在不是这种情况吗？大多数都是不出声的人，一部分贴贴人或者乐子人就能引导她去提meaqua ...</blockquote>
+我也不知道咋回你，我先看看前两天错过的那个歌回看看她是怎么被引导的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过她一播一个小时，怎么感觉你说的她整场都在提舞元meaqua一样
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 864#       发表于 2020-7-7 12:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48101892&amp;ptid=1945537" target="_blank">惑星 发表于 2020-7-7 12:23</a>
+
+翻排行榜觉得舞元行，点进去了解了一下，听到了舞元的歌声</blockquote>
+原来是这样的吗，我就记得她说歌声好听就选了来着
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 865#       发表于 2020-7-7 12:27
+
+
+
+
+说明把几个关键词都刻进dna了，只要提一提就难受
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 866#       发表于 2020-7-7 12:28
+
+
+
+
+快进到“嗷的一声就疯了”
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 867#       发表于 2020-7-7 12:29
+
+
+
+ 本帖最后由 掉头学姐 于 2020-7-7 12:31 编辑 
+
+反正看斗鱼这种顶级直播来看，不玩游戏不看视频是混不了时长的，你混不了时长就会被holo的福报势挤占空间，已经不是v圈初期那种时代了
+
+syl，个人对咩最不满的就是不守时，还不通知
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 868#       发表于 2020-7-7 12:30
+
+
+
+
+如果她没自己展开话题的话估计就是被各种观众抛出的话题拉扯了
+
+
+观众最容易抛出的就是人际关系了
+
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 869#       发表于 2020-7-7 12:30
+
+
+
+
+不是純粹因為舞元是好迫害的對象才選擇的嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你咩搞bg也不敢搞太真 所以找舞元或是之前黑人這種好迫害的
+
+要叫咩搞像彩虹bg軍神這種等級的她也是不敢 當然這半吊子的尷尬營業比較符合她的喜好
+
+她要搞這些也就圖一樂 觀眾跟著圖一樂就好 真入腦的還是快放下吧
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 870#       发表于 2020-7-7 12:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再快进就是第二个xby了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 871#       发表于 2020-7-7 12:33
+
+
+
+ 本帖最后由 无限舰制 于 2020-7-7 12:39 编辑 
+
+主播卑微粉丝也卑微<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+虽然我不是很想车心态问题（心态健康的这圈子里也没几个）
+
+继续展开来说的话就是……短期饭票（做几年跑路的），纯粹当服务业来搞（可能会被迫把自己本来zqsg的不安放大夸张，老实说这也挺扭曲的吧）
+
+
+不过狐皇面包狗那种快乐打游戏的节奏还挺好的……但年轻yhm看起来似乎不太能这么稳重的样子
+
+
+简单来说心态好我这边的定义是在主播工作中（很明显这份工作自由度还挺大的）找到自己一段时间内的人生目标和追求，同时获得收入和正向的精神反馈，最好还能有点技能提升，这样比较平衡……
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 872#       发表于 2020-7-7 12:37
+
+
+
+
+我还以为播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想到在车
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 873#       发表于 2020-7-7 12:37
+
+
+
+
+她倒是想来点能让她顺着话题转进整活的评论，而不是会惹她生气或让她不想回话或纯舔的，观众有趣也很重要。
+最近提阿夸也没几次是被评论带跑的，提舞元的经常是直接无视了，其他聊的话题也不少了，不知道最近难受的点在哪里
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 874#       发表于 2020-7-7 12:37
+
+
+
+
+格格不入.jpg
+你咩姐的粉丝成分多的很，各种粉丝成分都有自己的毛病。就比如说我这种粉丝的臭毛病，就是希望她能对所有粉丝一视同仁，不能因为哪个粉丝打的钱多就去疯狂的献媚
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 875#       发表于 2020-7-7 12:38
+
+
+
+
+草，这个发散男人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么说呢，让我有种当年debu这个词的感觉
+
+
+
+
+
+
+
+-----
+
+####  lll447  
+##### 876#       发表于 2020-7-7 12:38
+
+
+
+
+前段时间和星川apex的互动有以前内味。
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 877#       发表于 2020-7-7 12:38
+
+
+
+
+啊，我只想看看舞元该怎么收场了，会有苔姨助力吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 878#       发表于 2020-7-7 12:39
+
+
+
+
+晾着呗.jpg
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 879#       发表于 2020-7-7 12:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">等我出道了，她就只有我了，到时候欢迎大家车我倒我黑泥
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 880#       发表于 2020-7-7 12:42
+
+
+
+<blockquote>惑星 发表于 2020-7-7 12:37
+格格不入.jpg
+
+你咩姐的粉丝成分多的很，各种粉丝成分都有自己的毛病。就比如说我这种粉丝的臭毛病，就是希 ...</blockquote>
+咩姐献媚最多的是女粉吧。。。金主她在直播里貌似只对财酱有过特别表示（财酱确实也打的多）
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 881#       发表于 2020-7-7 12:42
+
+
+
+
+等我出道了， 小肥妹粉丝的今天就是你们的明天！
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 882#       发表于 2020-7-7 12:44
+
+
+
+
+事实证明，养gachi养的越多雷区越大，你能保证每个gachi不会突然被踩雷、突然爆炸突然炎上然后跑路吗？没意思，整活儿还不自由现在已经注意了不少别缩小范围了
+难道说是想要她有那种“没了我就活不下去”的小物感吗？<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+挺无聊的车轱辘的，我不希望她被部分人的期望束缚住
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 883#       发表于 2020-7-7 12:44
+
+
+
+ 本帖最后由 weiweiEX 于 2020-7-7 12:46 编辑 
+
+当初阿b直播间bug那一波是财酱打的吧，在日本都成了个梗，因为bug显示给mea一次打了一亿，这两天还有人翻出来“新人vtuber桑被中国人打钱一亿日元”，我不知道该怎么吐槽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+另外mea的反应艺也算是她的特色不算献媚吧，不然500刀的moneymoneymoney岂不是也算了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 884#       发表于 2020-7-7 12:48
+
+
+
+
+献媚指只照顾特定的粉丝，其他粉丝管他去死
+我就这么别扭，你只考虑联动不考虑gachi，我不喜欢，你不考虑联动只考虑gachi，我也不喜欢
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 885#       发表于 2020-7-7 12:52
+
+
+
+
+小麻还是快进到和我结婚吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 886#       发表于 2020-7-7 12:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">论可持续发展
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 887#       发表于 2020-7-7 12:55
+
+
+
+
+饭盒动了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 888#       发表于 2020-7-7 12:58
+
+
+
+
+🌂
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 889#       发表于 2020-7-7 13:02
+
+
+
+
+我去送伞了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 890#       发表于 2020-7-7 13:03
+
+
+
+
+该等某个小号发的🌂了，这饭盒啥意思啊，DDD要延期了？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  石破天  
+##### 891#       发表于 2020-7-7 13:03
+
+
+
+
+突然被顺劈，这就是视奸的报应吗
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 892#       发表于 2020-7-7 13:04
+
+
+
+
+另一个活动延期了，还没公布的活动，是什么就靠猜吧
+我猜是个人live
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 893#       发表于 2020-7-7 13:04
+
+
+
+
+雨中漫步，whl
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 894#       发表于 2020-7-7 13:06
+
+
+
+
+可能是吧，我记得bls那段时间有次直播说过“我自己的live。。。”然后闭嘴了
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 895#       发表于 2020-7-7 13:14
+
+
+
+
+*☂︎*̣̩⋆̩
+
+楼上的伞纯度不够
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 896#       发表于 2020-7-7 13:14
+
+
+
+
+原来stage1st有字符限制吗?
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 897#       发表于 2020-7-7 13:18
+
+
+
+
+我来送伞了
+
+
+
+
+
+
+5FD8F9E8-2227-4953-A56D-7699A3B195A5.jpeg
+(24.69 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-7-7 13:17 上传
+
+
+
+
+
+
+
+
+伞有多大，我的爱就有多大
+
+<img src="https://img.saraba1st.com/forum/202007/07/131746wrydmreetvrgaren.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 898#       发表于 2020-7-7 13:26
+
+
+
+
+突然想到我的伞被我丢在学校了，然后来了济南就老下雨，小麻是要给我送伞吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 899#       发表于 2020-7-7 14:13
+
+
+
+
+是因为台风个人live延期了（）
+
+ykw，在？借个核弹
+
+syl  前面看到了前字幕组组员和现同好会会员的发言，总觉得少吃了好多瓜
+
+我入坑晚了啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                    
