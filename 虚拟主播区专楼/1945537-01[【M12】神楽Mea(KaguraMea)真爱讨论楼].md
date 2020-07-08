@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-08 02:13** 
+> ## **本文件最后更新于2020-07-08 14:14** 
 
 
 
@@ -19896,4 +19896,492 @@ meaqualice这个是爱丽丝当时说想看的</blockquote>
 
 
 
-            
+
+
+-----
+
+####  kolu33  
+##### 1113#       发表于 2020-7-8 08:25
+
+
+
+
+直接转行执法人员，打击非法倒卖，抓住咩姐，事业**两丰收更好一点
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1114#       发表于 2020-7-8 09:04
+
+
+
+
+下次播会是什么时候呢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 1115#       发表于 2020-7-8 10:38
+
+
+
+
+希望是媚宅直播，希望是媚宅直播...
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1116#       发表于 2020-7-8 10:49
+
+
+
+
+这时候应该发动你楼的强项-底线思维
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 1117#       发表于 2020-7-8 10:57
+
+
+
+
+之前一直在说肌肉痛，录舞录歌中？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1118#       发表于 2020-7-8 11:01
+
+
+
+
+坐等717b站周年庆<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1119#       发表于 2020-7-8 11:02
+
+
+
+<blockquote>神楽めあ1週間お風呂入らない事件すき</blockquote>
+奇怪的癖好
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1120#       发表于 2020-7-8 11:08
+
+
+
+
+老实说我最在意的是她的吉他卫星<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。这女人要是练好了什么时候掏出来弹唱一下绝对是大杀器
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1121#       发表于 2020-7-8 11:11
+
+
+
+
+兄弟2020年了，还等吉他呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1122#       发表于 2020-7-8 11:15
+
+
+
+
+要有梦想<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">。我记得隔壁还是泥潭有人在饭盒问她吉他的事情，她说在练的（是不是真的就不知道了）
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 1123#       发表于 2020-7-8 11:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48114152&amp;ptid=1945537" target="_blank">Mr.shelter 发表于 2020-7-8 11:15</a>
+要有梦想。我记得隔壁还是泥潭有人在饭盒问她吉他的事情，她说在练的（是不是真的就不知道了） ...</blockquote>
+还有钢琴不知道有没有练
+
+—— 来自 OPPO PDEM30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 1124#       发表于 2020-7-8 11:42
+
+
+
+
+可以期待一手3D时吉他弹唱吗？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+最简单的那种有个调，能听个响的就行。
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 1125#       发表于 2020-7-8 12:04
+
+
+
+
+“少林功夫好嘢”
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 1126#       发表于 2020-7-8 12:12
+
+
+
+
+希望🎸是真的有在练，最近听u18的弹唱真的很有感觉
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 1127#       发表于 2020-7-8 12:15
+
+
+
+
+我是觉得不要太过期待 真有在练肯定会在tc扯两句 手指疼什么的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1128#       发表于 2020-7-8 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48114152&amp;ptid=1945537" target="_blank">Mr.shelter 发表于 2020-7-8 11:15</a>
+
+要有梦想。我记得隔壁还是泥潭有人在饭盒问她吉他的事情，她说在练的（是不是真的就不知道了） ...</blockquote>
+那也是接近半年前问的问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说在意这个干嘛，就当她没练不就完事了
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1129#       发表于 2020-7-8 12:30
+
+
+
+
+mea都是悄悄练不说的，别指望能套话套到啥内容。
+而且字幕组和她一起肉猪。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 1130#       发表于 2020-7-8 12:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">要是小麻奈子也能一起跟着大就更好了。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1131#       发表于 2020-7-8 12:54
+
+
+
+
+啊其实是我梦见她弹唱配信了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。醒来之后觉得这个究极脑控啊。
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 1132#       发表于 2020-7-8 13:00
+
+
+
+
+自从美末2之后我有点点弹吉他ptsd<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+neil,我鲨了你<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1133#       发表于 2020-7-8 13:10
+
+
+
+<blockquote>なぜかよく神楽めあはにじさんじで物部有栖はにじさんじではないという勘違いをしてしまう
+
+由
+
+翻译自 日语
+
+由于某种原因，我经常误解为神乐Mea是Sanjiji而Monobe Arisu不是。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1134#       发表于 2020-7-8 13:15
+
+
+
+
+到时候ddd跳个舞你们就知道错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 1135#       发表于 2020-7-8 13:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48113922&amp;ptid=1945537" target="_blank">weiweiEX 发表于 2020-7-8 11:02</a>
+
+奇怪的癖好</blockquote>
+一周不洗澡是冬天，夏天好像说是两天洗一次
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 1136#       发表于 2020-7-8 13:24
+
+
+
+
+妈的我怎么记得我去年退坑的时候就有吉他这卫星了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 1137#       发表于 2020-7-8 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48115742&amp;ptid=1945537" target="_blank">weiweiEX 发表于 2020-7-8 13:10</a></blockquote>
+怎么连鬼佬也开除陆士虹籍的啊2333
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 1138#       发表于 2020-7-8 13:57
+
+
+
+
+0022年了还有做梦弹吉他的
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 1139#       发表于 2020-7-8 14:06
+
+
+
+
+不指望太多，她直播时敲两下盆我就满足了
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 1140#       发表于 2020-7-8 14:07
+
+
+
+
+mea的手办开始补款了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1141#       发表于 2020-7-8 14:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">补款了好，又一个卫星可以打下来了
+
+
+
+
+
+           
