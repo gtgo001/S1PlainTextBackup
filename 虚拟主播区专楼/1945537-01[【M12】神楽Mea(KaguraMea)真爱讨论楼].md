@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-08 14:14** 
+> ## **本文件最后更新于2020-07-08 22:15** 
 
 
 
@@ -20384,4 +20384,801 @@ mea的手办开始补款了
 
 
 
-           
+
+
+-----
+
+####  weiweiEX  
+##### 1142#       发表于 2020-7-8 14:15
+
+
+
+
+那个帽子特典我等了很久了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 1143#       发表于 2020-7-8 14:56
+
+
+
+
+说起来你麻曾说很喜欢纪念性质的有形之物，不知道有没有人给她弄一个
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1144#       发表于 2020-7-8 14:59
+
+
+
+
+这手办的事她大概率不会想听<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过也有过了这么久改变想法的可能性
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 1145#       发表于 2020-7-8 15:01
+
+
+
+
+我给她弄，地址呢（
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1146#       发表于 2020-7-8 15:17
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-7-8 15:29 编辑 
+
+有形之物终将湮灭<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+我能想到最持久的东西就是自然的规律本身
+
+
+楼友还不快发现个物理或者数学规律并以你咩命名?
+
+如果不是那种不会过时， 不会被淘汰的成果， 学术垃圾就不用拿出来丢人了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 1147#       发表于 2020-7-8 15:22
+
+
+
+ 本帖最后由 Cla0221 于 2020-7-8 15:26 编辑 
+
+我论文致谢里写了她，算不算无法湮灭了）
+
+
+过了啊，我都毕业了
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 1148#       发表于 2020-7-8 15:23
+
+
+
+
+过了再说（
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1149#       发表于 2020-7-8 15:25
+
+
+
+
+真实终将腐朽，虚幻永世长存，你麻这么v，不会消失不见的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 1150#       发表于 2020-7-8 16:07
+
+
+
+
+clay这论文怎么写完的真么晚？我两个月前就答辩了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 1151#       发表于 2020-7-8 16:19
+
+
+
+
+有点慌手办质量，对国产厂商不是很有信心
+之前买的hobbymax独角兽雷了
+希望涂装能好点
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 1152#       发表于 2020-7-8 16:26
+
+
+
+
+她甚至有可能都不知道或者忘了自己有手办
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 1153#       发表于 2020-7-8 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48117923&amp;ptid=1945537" target="_blank">cgz 发表于 2020-7-8 16:26</a>
+她甚至有可能都不知道或者忘了自己有手办</blockquote>
+这手办不是井皇授权的？跟咩唯一有关系的点就是用了咩的头像。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 1154#       发表于 2020-7-8 16:51
+
+
+
+
+忙，忙，忙<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  airclab  
+##### 1155#       发表于 2020-7-8 16:59
+
+
+
+
+楼友加油
+
+发现颗新的恒星
+
+用咩的名字命名
+
+差不多就是永远了
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 1156#       发表于 2020-7-8 17:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">手办发货了，大概明天就能收到了
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 1157#       发表于 2020-7-8 18:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48118275&amp;ptid=1945537" target="_blank">airclab 发表于 2020-7-8 16:59</a>
+楼友加油
+
+发现颗新的恒星
+
+用咩的名字命名</blockquote>
+这个好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 1158#       发表于 2020-7-8 18:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">等老哥开箱了，要是还行的话补个
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1159#       发表于 2020-7-8 18:30
+
+
+
+
+小行星现实点
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 1160#       发表于 2020-7-8 18:42
+
+
+
+
+没在阿b买过手办
+如果损坏要退货需要开箱录视频吗?
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1161#       发表于 2020-7-8 18:54
+
+
+
+
+拍照就行了吧
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 1162#       发表于 2020-7-8 19:03
+
+
+
+
+在？发条推？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1163#       发表于 2020-7-8 19:04
+
+
+
+
+呜呜呜不动了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1164#       发表于 2020-7-8 19:22
+
+
+
+
+我羊呢？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1165#       发表于 2020-7-8 19:28
+
+
+
+
+我明白了，
+
+
+当她久违地体验了不直播的生活后， 
+
+
+她意识到了，
+
+
+不直播的日子有多美好，
+
+
+再也不想回去面对怪文书阿宅了，
+
+
+啊，
+
+
+怎么办呢，
+
+
+明天再播吧，
+
+
+唉， 不想播啊，
+
+
+要不发条推吧，
+
+
+算了， 明天再发也行，
+
+
+明天，
+
+
+明天，
+
+
+明天，
+
+
+...
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+
+
+
+
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 1166#       发表于 2020-7-8 19:38
+
+
+
+
+好久没这么戒断了，这就是她隐退后的预演吗，发散，回忆，想想她曾经留下的痕迹和放过的卫星，咩快动啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1167#       发表于 2020-7-8 19:39
+
+
+
+
+噶吃浓度好高啊，这几天我只觉得不要防突击神清气爽<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1168#       发表于 2020-7-8 19:42
+
+
+
+
+噶吃浓度（X）
+
+发疯浓度（√）
+
+
+
+
+
+
+
+-----
+
+####  elect  
+##### 1169#       发表于 2020-7-8 20:08
+
+
+
+
+？今天推动过嘛
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1170#       发表于 2020-7-8 20:23
+
+
+
+
+晚上唱个歌吧求你了，我快不行了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 1171#       发表于 2020-7-8 20:23
+
+
+
+
+今天连推都不发了?真有这么忙吗……
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 1172#       发表于 2020-7-8 20:34
+
+
+
+
+可以忙，也可以懒，也许是没新段子发干脆装作没有这一天
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1173#       发表于 2020-7-8 20:41
+
+
+
+
+【第一天】
+
+1. 发推
+
+2. 直播
+
+3. 都不要 《--
+
+
+【第二天】
+
+1. 发推
+
+2. 直播
+
+3. 都不要 《--
+
+
+【第三天】
+
+1. 发推
+
+2. 直播
+
+3. 都不要 《--
+
+
+【END 4: 虚拟人，只要不上线就不存在】
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1174#       发表于 2020-7-8 20:44
+
+
+
+
+她上次说忙到什么时候啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 1175#       发表于 2020-7-8 20:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48120827&amp;ptid=1945537" target="_blank">Mr.shelter 发表于 2020-07-08 20:44:24</a>
+她上次说忙到什么时候啊</blockquote>这周说是要出3天，按理说今天结束了，谁知道呢，下周还要出去4天，上半月的直播不会只能看12号的ptsd麻将饮鸩止渴了吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 1176#       发表于 2020-7-8 20:57
+
+
+
+
+还有家庭旅行，啊，痛苦
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1177#       发表于 2020-7-8 21:04
+
+
+
+
+要是这麻将再包含大量5咩内容怕不是m楼又要疯一下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 1178#       发表于 2020-7-8 21:06
+
+
+
+
+只要精神坚强就不怕。
+gachi恋中国人透不到虚拟法国羊女仆<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 1179#       发表于 2020-7-8 21:07
+
+
+
+
+兔妈妈在呢，不怕
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1180#       发表于 2020-7-8 21:10
+
+
+
+
+我的心神早就被各种新番夺走了，坚强的很<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 1181#       发表于 2020-7-8 21:13
+
+
+
+
+有盼头之后连戒断都没那么可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+但是发个推动动好不好<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 1182#       发表于 2020-7-8 21:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">我的心已经被游戏夺走了，或许此生不再有悲喜
+
+
+
+
+
+          
