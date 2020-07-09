@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-09 14:14** 
+> ## **本文件最后更新于2020-07-09 16:21** 
 
 
 
@@ -22207,4 +22207,449 @@ QQ图片20200709134026.png
 
 
 
-        
+
+
+-----
+
+####  神光咩咩  
+##### 1243#       发表于 2020-7-9 14:19
+
+
+
+
+在nga看到返图，还可以（有芒果）
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1244#       发表于 2020-7-9 14:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还原人设好评
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 1245#       发表于 2020-7-9 14:38
+
+
+
+
+霓虹也躺平啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+这情况真是糟糕啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 1246#       发表于 2020-7-9 14:43
+
+
+
+
+午睡时又梦到你咩了，记不清梦里她播的啥了，好像是b站2周年？然后一个老哥来s1发了一堆zqsg，然后大家都哭了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 1247#       发表于 2020-7-9 15:24
+
+
+
+
+两周年时s1关着的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sakilin2013  
+##### 1248#       发表于 2020-7-9 15:28
+
+
+
+
+比比丽丽还是动作快，这边手办原厂订的刚寄出，鹤屋甚至还没补款<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1249#       发表于 2020-7-9 15:37
+
+
+
+
+啊这，谁能拉我进群啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。应该有群的吧。
+
+咱的qq是3343649535 刚建的小号不怕。
+
+
+
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 1250#       发表于 2020-7-9 15:45
+
+
+
+
+有群的话可不可以也把我拉一下 求个私信群号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  airclab  
+##### 1251#       发表于 2020-7-9 15:47
+
+
+
+
+正好之前拍了一张有人提到的芒果我知道大家都喜欢
+
+
+
+
+
+
+-72b3a39253f560b2.jpg
+(862.86 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-7-9 15:45 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/09/154523b4lmqeq3sa8bq9ba.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 1252#       发表于 2020-7-9 15:47
+
+
+
+
+不就一星期吗，而且nga那边还开着呢。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1253#       发表于 2020-7-9 15:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48131520&amp;ptid=1945537" target="_blank">airclab 发表于 2020-7-9 15:47</a>
+
+正好之前拍了一张有人提到的芒果我知道大家都喜欢</blockquote>
+草
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1254#       发表于 2020-7-9 15:50
+
+
+
+
+太懂了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。好评
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1255#       发表于 2020-7-9 15:51
+
+
+
+
+其实有个nga里版来着，跟这边差不多，有兴趣的可以去那开个s1移民楼啥的（
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1256#       发表于 2020-7-9 15:55
+
+
+
+
+说实话我一直不知道所谓的里版是啥怎么进<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1257#       发表于 2020-7-9 15:56
+
+
+
+
+警惕和平演变小团体，小团体去死啊，nga又不是不能用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1258#       发表于 2020-7-9 15:57
+
+
+
+
+老实说我挺喜欢nga的，但是更喜欢视奸那边。因为搞不清被mute的分寸界限在哪里。nga老哥真的很严格<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 1259#       发表于 2020-7-9 15:58
+
+
+
+[https://bbs.nga.cn/thread.php?fid=-1734295](https://bbs.nga.cn/thread.php?fid=-1734295)
+
+nga里版（大概<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 1260#       发表于 2020-7-9 15:59
+
+
+
+
+神乐mea同好会2群:420090242
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1261#       发表于 2020-7-9 16:05
+
+
+
+
+q群小团体是人类最黑暗面的体现处，也是直接捅向你麻的一把利刃，楼友要被变成鬼力<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1262#       发表于 2020-7-9 16:06
+
+
+
+ 本帖最后由 weiweiEX 于 2020-7-9 16:14 编辑 
+
+当然真要忍不住说话我倒觉得v8更适合做泥潭的替代就是了（
+
+↓v8才是真正的巨魔角斗场啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 1263#       发表于 2020-7-9 16:11
+
+
+
+
+v8？我才不要去“mea是谁，mea凉了吗，mea的黑料有哪些，今天看了mea的黑料很绝望”尼玛天天只有这些的地方<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1264#       发表于 2020-7-9 16:13
+
+
+
+
+算了，我打算在v综避难所待着，顺便看看nga纯良砍砍梁木<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1265#       发表于 2020-7-9 16:17
+
+
+
+
+v8主要是流量不如以往了，不然我还是很愿意在那儿增加你咩的浓度的，没有了流量，也就失去了价值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ロキシー  
+##### 1266#       发表于 2020-7-9 16:19
+
+
+
+
+韩版现在还是要向韩锷申请威望才能发言吗，好久没去了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1267#       发表于 2020-7-9 16:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48131893&amp;ptid=1945537" target="_blank">ロキシー 发表于 2020-7-9 16:19</a>
+
+韩版现在还是要向韩锷申请威望才能发言吗，好久没去了</blockquote>
+应该是，之前还是申请权限才能看，现在好像只有发言需要权限了
+
+
+
+
+
+       

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-06 12:00** 
+> ## **本文件最后更新于2020-07-09 16:01** 
 
 
 
@@ -3370,7 +3370,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_AVggV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_u6Ete" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5156,7 +5156,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_MxFP1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_Sz2S0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -12700,4 +12700,417 @@ https://www.weibo.com/tv/show/1034:4522889945481228?from=old_pc_videoshow</block
 
 
 
-                           
+
+
+-----
+
+####  粉儿alice  
+##### 2169#       发表于 2020-7-6 21:39
+
+
+
+
+果然因为umb的关系吸引一批円脸厨和虚割割厨
+这也是我不希望umb来配q娃一个比较大的原因
+
+想想隔壁美妙也是因为三森和德井吸引一批繆丝林残党过来 呵呵<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 2170#       发表于 2020-7-6 22:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48095750&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-7-6 21:39</a>
+
+果然因为umb的关系吸引一批円脸厨和虚割割厨
+
+这也是我不希望umb来配q娃一个比较大的原因</blockquote>
+毕竟本来就都是魔法少女作品，连上北都玩梗（虽然迫于官方要求自删了），对伏笔进行有端联想很正常
+
+而且别说有小圆有战姬，微博上提勇者部的都有，就不想些好的<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 2171#       发表于 2020-7-7 01:23
+
+
+
+
+古代人复活可能性up，当初一句玩笑居然要成真了
+
+为什么变健康这点确实可以琢磨一下。一开始和佳追知优跑几步就不行了，所以第一集其实状态并没那么健康，而兔子说了变q娃没有治病能力。医生说完全不像生过重病就有点玩味了，如果是因为环境改变导致身体变化，那说不定和佳不是人类而是某种和病幻怪相反的存在，城市污染相对严重，所以她才卧床不起。来到乡村环境好，民风淳朴，状态便快速恢复。正太抹病菌无法黏着，证明和佳和病原体完全排斥。综上所诉，和佳本体乃地球意志之女是也。等大九条光到位，就该察觉和佳身份不简单了，后半段揭露身世之谜，结尾在大战中与boss双双濒死，在姬友的呼唤下成功复活，地球环境再度变好，可喜可贺
+
+下集又是和淫  兽吵架，感觉这季的淫  兽存在感特别强，戏份也多
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2172#       发表于 2020-7-7 09:25
+
+
+
+
+(<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚补完法Q，正在补心跳）想问一下这部快完结了吗，要是还早我就考虑追进度了
+
+
+
+
+
+
+
+-----
+
+####  上坂莲华  
+##### 2173#       发表于 2020-7-7 09:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099296&amp;ptid=1860852" target="_blank">JustW 发表于 2020-7-7 09:25</a>
+(刚补完法Q，正在补心跳）想问一下这部快完结了吗，要是还早我就考虑追进度了 ...</blockquote>
+你看看法q多少集，再看看这个现在演了多少集<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  二条乃梨子  
+##### 2174#       发表于 2020-7-7 09:35
+
+
+
+
+感觉日向真的是女性staff才能创作出来的角色啊
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2175#       发表于 2020-7-7 09:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099365&amp;ptid=1860852" target="_blank">上坂莲华 发表于 2020-7-7 09:32</a>
+
+你看看法q多少集，再看看这个现在演了多少集</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦14集啊，那没事了，我看楼这么高了以为得有三四十集了
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 2176#       发表于 2020-7-7 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48097815&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-7-7 01:23</a>
+
+古代人复活可能性up，当初一句玩笑居然要成真了
+
+为什么变健康这点确实可以琢磨一下。一开始和佳追知优跑几 ...</blockquote>
+地球超人？
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2177#       发表于 2020-7-7 13:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我终于可以期待第一集和佳变身演讲时候那种触动心灵的情感再次出现了吗。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2178#       发表于 2020-7-7 13:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099457&amp;ptid=1860852" target="_blank">JustW 发表于 2020-7-7 09:41</a>
+
+哦14集啊，那没事了，我看楼这么高了以为得有三四十集了</blockquote>
+去年有231页，前年有377页。别急
+
+
+
+
+
+
+
+-----
+
+####  天地大撒野  
+##### 2179#       发表于 2020-7-7 16:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48099457&amp;ptid=1860852" target="_blank">JustW 发表于 2020-7-7 09:41</a>
+
+哦14集啊，那没事了，我看楼这么高了以为得有三四十集了</blockquote>
+按理说现在应该有24左右？
+
+疫情原因
+
+
+
+
+
+
+
+-----
+
+####  猫爪挠玻璃  
+##### 2180#       发表于 2020-7-7 16:54
+
+
+
+
+？以为只是随手埋个伏笔不一定会用到的我
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 2181#       发表于 2020-7-8 18:28
+
+
+
+<blockquote>天地大撒野 发表于 2020-7-7 16:16
+按理说现在应该有24左右？
+
+疫情原因</blockquote>
+这都拖了一 cour 了啊……
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 2182#       发表于 2020-7-8 20:18
+
+
+
+
+这集很好，问题在于青山充，如果整好点估计质量很高
+
+佩吉坦真的可爱
+
+
+下一集说第一次闹翻，一下梦回开头几集……
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 2183#       发表于 2020-7-8 20:21
+
+
+
+
+一开始说为什么来到这个镇就变好呢
+
+不禁想到是不是，其实不是和佳变好了是地球被污染了，就是两者保其一的那种感觉
+
+这就算比较黑的发展了吧，之后就会陷入是选自己还是选地球
+
+
+不过中间开始说小镇上的风气和前辈，就感觉好像自圆其说了，希望不是太有事
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2184#       发表于 2020-7-8 20:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天开始补了。第一集感想：太好了呢小圆，第一集就变身了。
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 2185#       发表于 2020-7-8 21:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48120469&amp;ptid=1860852" target="_blank">xingenge 发表于 2020-7-8 20:21</a>
+
+一开始说为什么来到这个镇就变好呢
+
+不禁想到是不是，其实不是和佳变好了是地球被污染了，就是两者保其一的 ...</blockquote>
+如果剧情继续忠于OP，那么大结局可能是Q娃们治愈地球
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 2186#       发表于 2020-7-8 22:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48121891&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-7-8 21:57</a>
+
+如果剧情继续忠于OP，那么大结局可能是Q娃们治愈地球</blockquote>
+是的，如果按这想法走下去，能破解的就是大家都健康
+
+
+
+
+
+
+
+-----
+
+####  wind4rap  
+##### 2187#       发表于 2020-7-9 01:13
+
+
+
+
+这你们都能造出假药来<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">我觉得这身体变好明显就是想说环境和乐融融交了朋友每天开心所以变好了而已啊，用这个去讲健康快乐是可以传播的这种主题而已啊。
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2188#       发表于 2020-7-9 09:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这元素不只限于自然元素而是什么东西都行的话，病毒-治疗这个设定还有什么意义吗
+
+
+
+
+
+
+
+-----
+
+####  lydia5989  
+##### 2189#       发表于 2020-7-9 10:45
+
+
+
+
+精神放松+环境好+当上了q娃（主因），但现在你球很多重疾跟精神因素关系很大啊。。精神好了确实能较长时间吊命，即便放弃治疗后。
+
+
+
+
+
+
+
+-----
+
+####  上坂莲华  
+##### 2190#       发表于 2020-7-9 10:55
+
+
+
+<img src="https://p.sda1.dev/0/9e8725ad3042c2c8e4ccf4b4e7ae3975/IMG_78C447EEE762FAEE42C4E948F5A1DD95.png" referrerpolicy="no-referrer">
+口耨诶尬欧是健康的证明.jpg
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 2191#       发表于 2020-7-9 15:53
+
+
+
+<img src="http://wx4.sinaimg.cn/large/007fR60Lgy1ggkrnj7ur6j30xc0m80zo.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+                          
